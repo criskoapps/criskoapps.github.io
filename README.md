@@ -1,174 +1,105 @@
 # Belenus - letras das músicas ensaiadas
 
 [Come Together](#come-together)|
-
 [Sunshine Of Your Love](#sunshine-of-your-love)|
-
 [Listen To The Music](#listen-to-the-music)|
-
 [Behind Blue Eyes](#behind-blue-eyes)|
-
 [I Hate Myself For Loving You](#i-hate-myself-for-loving-you)|
-
 [Because The Night](#because-the-night)|
-
 [Jumpin' Jack Flash](#jumpin-jack-flash)|
-
 [Whiskey In The Jar](#whiskey-in-the-jar)|
-
 [Man in the Box](#man-in-the-box)|
-
 [Zombie](#zombie)|
-
 [What's Up?](#whats-up)|
-
 [All Right Now](#all-right-now)|
-
 [Easy Lover](#easy-lover)|
-
 [Perfect Strangers](#perfect-strangers)|
-
 [Breaking All The Rules](#breaking-all-the-rules)|
-
 [Alive](#alive)|
-
 [Stand By Me](#stand-by-me)|
-
 [Synchronicity II](#synchronicity-ii)|
-
 [Hotel California](#hotel-california)|
-
 [Psycho Killer](#psycho-killer)|
-
 [Wish You Were Here](#wish-you-were-here)|
-
 [Aluga-se](#aluga-se)|
-
 [Agora Só Falta Você](#agora-só-falta-você)|
-
 [Malandragem](#malandragem)|
-
 [Blues da Piedade](#blues-da-piedade)|
-
 [Dream On](#dream-on)|
-
 [Heaven](#heaven)|
-
 [Amor](#amor)|
-
 [32 Dentes](#32-dentes)|
-
 [Fátima](#fátima)
 
 
 ### Come Together
 The Beatles
 
-
-Shoot me, shoot me
-Shoot me, shoot me
-
- 
-
-Here come old flat-top
-
-He come grooving up slowly
-
-He got joo-joo eyeballs
-
-He one holy roller
-
-He got hair down to his knee
-
-Got to be a joker, he just do what he please
-
-
-Shoot me, shoot me
+Shoot me, shoot me \
 Shoot me, shoot me
 
+Here come old flat-top \
+He come grooving up slowly \
+He got joo-joo eyeballs \
+He one holy roller \
+He got hair down to his knee \
+Got to be a joker, \
+he just do what he please
 
-He wear no shoeshine
+Shoot me, shoot me \
+Shoot me, shoot me
 
-He got toe-jam football
-
-He got monkey finger
-
-He shoot Coca-Cola
-
-He say: I know you, you know me
-
+He wear no shoeshine \
+He got toe-jam football \
+He got monkey finger \
+He shoot Coca-Cola \
+He say: I know you, you know me \
 One thing I can tell you is you got to be free
 
-
-Come together, right now
+Come together, right now \
 Over me
 
-Shoot me, shoot me
+Shoot me, shoot me \
 Shoot me
 
-
-He bag production
-
-He got walrus gumboot
-
-He got Ono sideboard
-
-He one spinal cracker
-
-He got feet down below his knee
-
-Hold you in his armchair, 
+He bag production \
+He got walrus gumboot \
+He got Ono sideboard \
+He one spinal cracker \
+He got feet down below his knee \
+Hold you in his armchair, \
 you can feel his disease
 
- 
-Come together, right now
-
-Over me
+Come together, right now \
+Over me \
 Shoot me, right!
 
-
-Come, come
-
-Come, come
-
+Come, come \
+Come, come \
 Come
  
+He roller coaster \
+He got early warning \
+He got muddy water \
+He one mojo filter \
+He say: One and one and one is three \
+Got to be good looking, \
+'cause he's so hard to see
 
-He roller coaster
-
-He got early warning
-
-He got muddy water
-
-He one mojo filter
-
-He say: One and one and one is three
-
-Got to be good looking, 'cause he's so hard to see
- 
-
-Come together, right now
+Come together, right now \
 Over me
 
-Shoot me, shoot me
+Shoot me, shoot me \
 Shoot me, oh
 
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
-Come together, yeah
-
+Come together, yeah \
+Come together, yeah \
+Come together, yeah \
+Come together, yeah \ 
+Come together, yeah \
+Come together, yeah \
+Come together, yeah \
+Come together, yeah \
 Come together, yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -178,50 +109,42 @@ Come together, yeah
 Cream
 
 
-It's getting near dawn
-When lights close their tired eyes
-I'll soon be with you, my love
+It's getting near dawn \
+When lights close their tired eyes \
+I'll soon be with you, my love \
 To give you my dawn surprise
 
-
-
-I'll be with you, darling, soon
+I'll be with you, darling, soon \
 I'll be with you when the stars start falling
 
-
-I've been waiting so long
-To be where I'm going
+I've been waiting so long \
+To be where I'm going \
 In the sunshine of your love
- 
 
-I'm with you, my love
-The light's shining through on you
-Yes, I'm with you, my love
+I'm with you, my love \
+The light's shining through on you \
+Yes, I'm with you, my love \
 It's the morning and just we two
  
-I'll stay with you, darling, now
+I'll stay with you, darling, now \
 I'll stay with you 'till my seas are dried up
  
-
-I've been waiting so long
-To be where I'm going
+I've been waiting so long \
+To be where I'm going \
 In the sunshine of your love
 
-
-I'm with you, my love
-The light's shining through on you
-Yes, I'm with you, my love
+I'm with you, my love \
+The light's shining through on you \
+Yes, I'm with you, my love \
 It's the morning and just we two
 
-
-I'll stay with you, darling, now
+I'll stay with you, darling, now \
 I'll stay with you till my seas are dried up
 
-
-I've been waiting so long
-I've been waiting so long
-I've been waiting so long
-To be where I'm going
+I've been waiting so long \
+I've been waiting so long \
+I've been waiting so long \
+To be where I'm going \
 In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -230,9 +153,9 @@ In the sunshine of your love
 ### Listen To The Music
 Doobie Brothers
 
-Don't you feel it growin', day by day
-People gettin' ready for the news
-Some are happy, some are sad
+Don't you feel it growin', day by day \
+People gettin' ready for the news \
+Some are happy, some are sad \
 Oh, we gotta let the music play
 
 What the people need
