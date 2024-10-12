@@ -21,21 +21,21 @@
 [Synchronicity II](#synchronicity-ii) |
 [Hotel California](#hotel-california) |
 
-[Psycho Killer](#psycho-killer) |
-[Wish You Were Here](#wish-you-were-here) |
-[Aluga-se](#aluga-se) |
-[Agora Só Falta Você](#agora-só-falta-você) |
-[Malandragem](#malandragem) |
-[Blues da Piedade](#blues-da-piedade) |
-[Dream On](#dream-on) |
-[Heaven](#heaven) |
-[Amor](#amor) |
-[32 Dentes](#32-dentes) |
+[Psycho Killer](#psycho-killer) | 
+[Wish You Were Here](#wish-you-were-here) | 
+[Aluga-se](#aluga-se) | 
+[Agora Só Falta Você](#agora-só-falta-você) | 
+[Malandragem](#malandragem) | 
+[Blues da Piedade](#blues-da-piedade) | 
+[Dream On](#dream-on) | 
+[Heaven](#heaven) | 
+[Amor](#amor) | 
+[32 Dentes](#32-dentes) | 
 [Fátima](#fátima)
 
 
 # Querigma - letras das bandas de alunos
-[I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
+[I Don't Wanna Lose You](#i-dont-wanna-lose-you) | 
 [Heathens](#heathens)
 
 
@@ -653,7 +653,7 @@ I said, "hey, what is this? \
 Now baby", maybe, \
 Maybe she's in need of a kiss \
 I said, "hey, what's your name, baby? \
-Maybe we can see things the same" \ 
+Maybe we can see things the same" \
 Now don't you wait, or hesitate \
 Let's move before they raise the parking rate
 
@@ -757,10 +757,12 @@ You'll ever know, oh
 She's an easy lover (she's a easy lover) \
 She'll get a hold on you believe it (get a hold on you) \
 (She's) like no other \
-Before you know it you'll be on your knees  \ (you'll be down onyour knees)
+Before you know it you'll be on your knees \
+(you'll be down onyour knees)
 
 She's an easy lover \
-She'll take your heart but you won't feel it \ (you won't feel it) \
+She'll take your heart but you won't feel it \
+(you won't feel it) \
 She's like no other \
 And I'm just trying to make you see \
 (trying to make you see)
@@ -768,17 +770,21 @@ And I'm just trying to make you see \
 She's an easy lover (she's a easy lover) \
 She'll get a hold on you believe it (get a hold on you) \
 (She's) like no other \
-Before you know it you'll be on your knees \ (you'll be down on your knees) \
+Before you know it you'll be on your knees \
+(you'll be down on your knees) \
 She's an easy lover \
-She'll take your heart but you won't feel it \ (you won't feel it) \
+She'll take your heart but you won't feel it \
+(you won't feel it) \
 She's like no other \
-And I'm just trying to make you see \ (trying to make you see)
+And I'm just trying to make you see \
+(trying to make you see)
 
 She's an easy lover (she's a easy lover) \
 She'll get a hold on you believe it \
 (get a hold on you) \
 (She's) like no other \
-Before you know it you'll be on your knees \(you'll be down onyour knees)
+Before you know it you'll be on your knees \
+(you'll be down onyour knees)
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
@@ -787,7 +793,7 @@ Before you know it you'll be on your knees \(you'll be down onyour knees)
 Deep Purple
 
 Can you remember, remember my name? \
-As I flow through your life \ 
+As I flow through your life \
 A thousand oceans I have flown \
 And cold, cold spirits of ice \
 All my life, I am the echo of your past \
@@ -1565,7 +1571,7 @@ Não confio em ninguém \
 Não confio em ninguém com mais de 30 \
 Não confio em ninguém com 32 dentes
 
-Meu pai um dia me falou \ 
+Meu pai um dia me falou \
 Pra que eu nunca mentisse \
 Mas ele se esqueceu de dizer a verdade \
 Ha! Ha! Ha! Ha!
@@ -1621,7 +1627,7 @@ Mas acontece que tudo tem começo \
 E se começa um dia acaba, eu tenho pena de vocês
 
 E as ameaças de ataque nuclear \
-Bombas de nêutrons não foi Deus quem fez \ 
+Bombas de nêutrons não foi Deus quem fez \
 Alguém, alguém um dia vai se vingar \
 Vocês são vermes, pensam que são reis \
 Não quero ser como vocês \
@@ -1764,7 +1770,7 @@ Please, all my friends are heathens, take it slow \
 (Watch it) \
 Wait for them to ask you who you know
 
-Why'd you come? You knew you should have stayed
+Why'd you come? You knew you should have stayed \
 (It's blasphemy) \
 I tried to warn you just to stay away \
 And now they're outside ready to bust \
