@@ -37,114 +37,66 @@ The Beatles
 
 
 Shoot me, shoot me
-
 Shoot me, shoot me
 
  
 
 Here come old flat-top
-
 He come grooving up slowly
-
 He got joo-joo eyeballs
-
 He one holy roller
-
 He got hair down to his knee
-
 Got to be a joker, he just do what he please
 
- 
 
 Shoot me, shoot me
-
 Shoot me, shoot me
 
- 
 
 He wear no shoeshine
-
 He got toe-jam football
-
 He got monkey finger
-
 He shoot Coca-Cola
-
 He say: I know you, you know me
-
 One thing I can tell you is you got to be free
 
- 
 
 Come together, right now
-
 Over me
-
- 
-
 Shoot me, shoot me
-
 Shoot me
 
- 
 
 He bag production
-
 He got walrus gumboot
-
 He got Ono sideboard
-
 He one spinal cracker
-
 He got feet down below his knee
-
 Hold you in his armchair, you can feel his disease
 
  
-
 Come together, right now
-
 Over me
-
- 
-
 Shoot me, right!
 
- 
 
 Come, come
-
 Come, come
-
 Come
-
  
 
 He roller coaster
-
 He got early warning
-
 He got muddy water
-
 He one mojo filter
-
 He say: One and one and one is three
-
 Got to be good looking, 'cause he's so hard to see
-
  
 
 Come together, right now
-
 Over me
-
- 
-
 Shoot me, shoot me
-
 Shoot me, oh
-
- 
 
 Come together, yeah
 
@@ -172,77 +124,49 @@ Cream
 
 
 It's getting near dawn
-
 When lights close their tired eyes
-
 I'll soon be with you, my love
-
 To give you my dawn surprise
 
- 
+
 
 I'll be with you, darling, soon
-
 I'll be with you when the stars start falling
 
- 
 
 I've been waiting so long
-
 To be where I'm going
-
 In the sunshine of your love
-
  
 
 I'm with you, my love
-
 The light's shining through on you
-
 Yes, I'm with you, my love
-
 It's the morning and just we two
-
  
-
 I'll stay with you, darling, now
-
 I'll stay with you 'till my seas are dried up
-
  
 
 I've been waiting so long
-
 To be where I'm going
-
 In the sunshine of your love
 
- 
 
 I'm with you, my love
-
 The light's shining through on you
-
 Yes, I'm with you, my love
-
 It's the morning and just we two
 
- 
 
 I'll stay with you, darling, now
-
 I'll stay with you till my seas are dried up
 
- 
 
 I've been waiting so long
-
 I've been waiting so long
-
 I've been waiting so long
-
 To be where I'm going
-
 In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -252,89 +176,51 @@ In the sunshine of your love
 Doobie Brothers
 
 Don't you feel it growin', day by day
-
 People gettin' ready for the news
-
 Some are happy, some are sad
-
 Oh, we gotta let the music play
 
 What the people need
-
 Is a way to make 'em smile
-
 It ain't so hard to do if you know how
-
 Gotta get a message
-
 Get it on through
-
 Oh, now mama don't you ask me why
 
- 
-
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 All the time
 
- 
-
 Well I know, you know better
-
 Everything I say
-
 Meet me in the country for a day
-
 We'll be happy
-
 And we'll dance
-
 Oh, we're gonna dance our blues away
 
 And if I'm feelin' good to you
-
 And you're feelin' good to me
-
 There ain't nothin' we can't do or say
-
 Feelin' good, feeling fine
-
- 
-
 Oh, baby, let the music play
 
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 All the time
 
- 
 
 Like a lazy flowing river
-
 Surrounding castles in the sky
-
 And the crowd is growing bigger
-
 List'nin' for the happy sounds
-
 And I have to let them fly
-
  
 
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 Oh, oh, listen to the music
-
 All the time
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -345,101 +231,57 @@ The Who
 
 
 No one knows what it's like
-
 To be the bad man
-
 To be the sad man
-
 Behind blue eyes
-
  
 
 No one knows what it's like
-
 To be hated
-
 To be fated
-
 To telling only lies
 
- 
-
 But my dreams
-
 They aren't as empty
-
 As my conscience seems to be
-
- 
-
 I have hours, only lonely
-
 My love is vengeance
-
 That's never free
 
- 
 
 No one knows what it's like
-
 To feel these feelings
-
 Like I do
-
 And I blame you
 
- 
-
 No one bites back as hard
-
 On their anger
-
 None of my pain and woe
-
 Can show through
 
- 
 
 But my dreams
-
 They aren't as empty
-
 As my conscience seems to be
-
- 
-
 I have hours, only lonely
-
 My love is vengeance
-
 That's never free
 
- 
 
 When my fist clenches, crack it open
-
 Before I use it and lose my cool
-
 When I smile, tell me some bad news
-
 Before I laugh and act like a fool
 
 And if I swallow anything evil
-
 Put your finger down my throat
-
 And if I shiver, please give me a blanket
-
 Keep me warm, let me wear your coat
 
- 
 
 No one knows what it's like
-
 To be the bad man
-
 To be the sad man
-
 Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -450,106 +292,61 @@ Joan Jett & the Blackhearts
 
 
 Midnight gettin' uptight, where are you?
-
 You said you'd meet me, now it's quarter to two
-
 I know I'm hangin', but I'm still wantin' you
-
- 
-
 Hey, Jack, it's a fact they're talkin' in town
-
 I turn my back, and you're messin' around
-
 I'm not really jealous, don't like lookin' like a clown
 
- 
-
 I think of you every night and day
-
 You took my heart then you took my pride away
 
- 
-
 I hate myself for loving you
-
 Can't break free from the the things that you do
-
 I wanna walk but I run back to you
-
 That's why I hate myself for loving you
 
- 
 
 Daylight spent the night without you
-
 But I've been dreamin' 'bout the lovin' you do
+I'm over being angry 'bout the hell you put me through
 
-I won't be as angry 'bout the hell you put me through
-
- 
-
-Hey man bet you can treat me right
-
+Hey man, bet you can treat me right
 You just don't know what you was missin' last night
+I wanna see you begging, say, "Forget it" just for spite
 
-I wanna see your face and say "forget it" just for spite
-
- 
 
 I think of you every night and day
-
 You took my heart and you took my pride away
 
- 
 
 I hate myself for loving you
-
 Can't break free from the things that you do
-
-I wanna walk but I run back to yo
-
+I wanna walk but I run back to you
 That's why I hate myself for loving you
+Ow, uh
 
 I think of you every night and day
-
 You took my heart and you took my pride away
 
- 
-
 I hate myself for loving you
-
 Can't break free from the things that you do
-
-I wanna walk but I run back to you
-
+I wanna walk but I run back to you 
 That's why I hate myself for loving you
 
- 
-
 I hate myself for loving you
-
 Can't break free from the things that you do
-
-I wanna walk but I run back to you
-
+I wanna walk but I run back to you 
 That's why I hate myself for loving you
 
- 
-
-I hate myself
-
+I hate myself (ow, uh)
+For loving you (alright)
+I hate myself (ow, uh)
 For loving you
 
-I hate myself
-
+I hate myself (ow, ow, ow)
 For loving you
-
-I hate myself
-
-For loving you
-
-I hate myself
+I hate myself (ow, uh)
 
 I hate myself for loving you
 
@@ -561,111 +358,64 @@ Patti Smith
 
 
 Take me now, baby, here as I am
-
 Pull me close, try and understand
-
 Desire is hunger is the fire I breathe
-
 Love is a banquet on which we feed
 
- 
-
 Come on now, try and understand
-
 The way I feel when I'm in your hand
-
 Take my hand, come undercover
-
 They can't hurt you now
-
 Can't hurt you now, can't hurt you now
 
  
-
 Because the night belongs to lovers
-
 Because the night belongs to lust
-
 Because the night belongs to lovers
-
 Because the night belongs to us
 
- 
 
 Have I doubt when I am alone
-
 Love is a ring, the telephone
-
 Love is an angel disguised as lust
-
 Here in our bed until the morning comes
 
- 
 
 Come on now, try and understand
-
 The way I feel under your command
-
-Take my hands, and the sun descends
-
+Take my hands, as the sun descends
 They can't touch you now
-
 Can't touch you now, can't touch you now
 
- 
 
 Because the night belongs to lovers
-
 Because the night belongs to lust
-
 Because the night belongs to lovers
-
 Because the night belongs to us
 
- 
 
 With love we sleep
-
 With doubt the vicious circle
-
 Turns and burns
-
 Without you I cannot live
-
 Forgive the yearning burning
-
-I believe in time, too real to feel
-
- 
+I believe it's time, too real to feel
 
 So touch me now, touch me now, touch me now
 
 Because the night belongs to lovers
-
 Because the night belongs to lust
-
 Because the night belongs to lovers
-
 Because the night belongs to us
 
- 
-
 Because tonight, there are two lovers
-
 If we believe in the night we trust
-
 Because the night belongs to lovers
-
 Because the night belongs to lust
 
- 
-
 Because the night
-
 Belongs to lovers
-
 Because the night
-
 Belongs to us
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -676,44 +426,25 @@ The Rolling Stones
 
 
 I was born in a crossfire hurricane
-
 And I howled at my ma in the driving rain
-
 But it's all right, now, in fact it's a gas
-
 But it's all right, I'm Jumpin' Jack Flash
-
 It's a gas, gas, gas!
-
- 
 
 I was raised by a toothless, bearded hag
-
 I was schooled with a strap right across my back
-
 But it's all right, now, in fact it's a gas
-
 But it's all right, I'm Jumpin' Jack Flash
-
 It's a gas, gas, gas!
-
- 
 
 I was drowned, I was washed up and left for dead
-
-I fell down to my feet and I saw they bled
-
-I frowned at the crumbs of a crust of bread
-
-I was crowned with a spike right thru my head
+I fell down to my feet and I saw they bled (yeah)
+Show them how to frown at the crumbs of a crust of bread (show them)
+Yeah, I was crowned with a spike right through my head
 
 But it's all right, now, in fact it's a gas
-
 But it's all right, I'm Jumpin' Jack Flash
-
 It's a gas, gas, gas!
-
- 
 
 Jumpin' Jack Flash, it's a gas
 
