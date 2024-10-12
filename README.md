@@ -1,34 +1,63 @@
 # Belenus - letras das músicas ensaiadas
 
-[Come Together](#come-together)
-[Sunshine Of Your Love](#sunshine-of-your-love)
-[Listen To The Music](#listen-to-the-music)
-[Behind Blue Eyes](#behind-blue-eyes)
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you)
-[Because The Night](#because-the-night)
-[Jumpin' Jack Flash](#jumpin-jack-flash)
-[Whiskey In The Jar](#whiskey-in-the-jar)
-[Man in the Box](#man-in-the-box)
-[Zombie](#zombie)
-[What's Up?](#whats-up)
-[All Right Now](#all-right-now)
-[Easy Lover](#easy-lover)
-[Perfect Strangers](#perfect-strangers)
-[Breaking All The Rules](#breaking-all-the-rules)
-[Alive](#alive)
-[Stand By Me](#stand-by-me)
-[Synchronicity II](#synchronicity-ii)
-[Hotel California](#hotel-california)
-[Psycho Killer](#psycho-killer)
-[Wish You Were Here](#wish-you-were-here)
-[Aluga-se](#aluga-se)
-[Agora Só Falta Você](#agora-só-falta-você)
-[Malandragem](#malandragem)
-[Blues da Piedade](#blues-da-piedade)
-[Dream On](#dream-on)
-[Heaven](#heaven)
-[Amor](#amor)
-[32 Dentes](#32-dentes)
+[Come Together](#come-together)|
+
+[Sunshine Of Your Love](#sunshine-of-your-love)|
+
+[Listen To The Music](#listen-to-the-music)|
+
+[Behind Blue Eyes](#behind-blue-eyes)|
+
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you)|
+
+[Because The Night](#because-the-night)|
+
+[Jumpin' Jack Flash](#jumpin-jack-flash)|
+
+[Whiskey In The Jar](#whiskey-in-the-jar)|
+
+[Man in the Box](#man-in-the-box)|
+
+[Zombie](#zombie)|
+
+[What's Up?](#whats-up)|
+
+[All Right Now](#all-right-now)|
+
+[Easy Lover](#easy-lover)|
+
+[Perfect Strangers](#perfect-strangers)|
+
+[Breaking All The Rules](#breaking-all-the-rules)|
+
+[Alive](#alive)|
+
+[Stand By Me](#stand-by-me)|
+
+[Synchronicity II](#synchronicity-ii)|
+
+[Hotel California](#hotel-california)|
+
+[Psycho Killer](#psycho-killer)|
+
+[Wish You Were Here](#wish-you-were-here)|
+
+[Aluga-se](#aluga-se)|
+
+[Agora Só Falta Você](#agora-só-falta-você)|
+
+[Malandragem](#malandragem)|
+
+[Blues da Piedade](#blues-da-piedade)|
+
+[Dream On](#dream-on)|
+
+[Heaven](#heaven)|
+
+[Amor](#amor)|
+
+[32 Dentes](#32-dentes)|
+
 [Fátima](#fátima)
 
 
@@ -468,83 +497,44 @@ Metallica
 
 
 As I was goin' over the Cork and Kerry mountains
-
 I saw Captain Farrell and his money, he was countin'
-
 I first produced my pistol and then produced my rapier
-
 I said: Stand and deliver, oh, or the devil, he may take ya
 
- 
-
 I took all of his money and it was a pretty penny
-
 I took all of his money, yeah, and I brought it home to Molly
-
 She swore that she'd love me, no, never would she leave me
-
 But the devil take that woman, yeah, for you know she tricked me easy
 
- 
-
 Musha ring, dum-a-doo dum-a-da
-
 Whack for my daddy-o
-
 Whack for my daddy-o
-
 There's whiskey in the jar-o
-
- 
 
 Being drunk and weary, I went to Molly's chamber
-
 Takin' money with me, but I never knew the danger
-
 For about six, or maybe seven, in walked Captain Farrell
-
 I jumped up, fired my pistols and I shot him with both barrels
 
- 
-
 Musha ring, dum-a-doo dum-a-da
-
 Whack for my daddy-o
-
 Whack for my daddy-o
-
 There's whiskey in the jar-o
-
 Yeah, yeah, whiskey in the jar-o
 
- 
-
 Now, some men like fishin' and some men like the fowlin'
-
 And some men like to hear, to hear the cannon ball a-roarin'
-
 Me, I like sleepin', especially in my Molly's chamber
-
 But here I am, in prison, here I am with a ball and chain, yeah
 
- 
-
 Musha ring, dum-a-doo dum-a-da
-
 Whack for my daddy-o
-
 Whack for my daddy-o
-
 There's whiskey in the jar-o
 
- 
-
 Musha ring, dum-a-doo dum-a-da
-
 Musha ring, dum-a-doo dum-a-da
-
 Musha ring, dum-a-doo dum-a-da
-
 Musha ring, dum-a-doo dum-a-da
  
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -555,75 +545,40 @@ Alice In Chains
 
 
 I'm the man in the box
-
 Buried in my shit
-
 Won't you come and save me?
-
 Save me
 
- 
-
 Feed my eyes
-
 (Can you sew them shut?)
-
 Jesus Christ
-
 (Deny your maker)
-
 He who tries
-
 (Will be wasted)
-
 Oh, feed my eyes
-
 (Now you've sewn them) shut
-
- 
 
 I'm the dog who gets beat
-
 Shove my nose in shit
-
 Won't you come and save me?
-
 Save me
 
- 
-
 Feed my eyes
-
 (Can you sew them shut?)
-
 Jesus Christ
-
 (Deny your maker)
-
 He who tries
-
 (Will be wasted)
-
 Oh, feed my eyes
-
 (Now you've sewn them) shut
 
- 
-
 Feed my eyes
-
 (Can you sew them shut?)
-
 Jesus Christ
-
 (Deny your maker)
-
 He who tries
-
 (Will be wasted)
-
 Oh, feed my eyes
-
 (Now you've sewn them) shut
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -634,80 +589,42 @@ The Cranberries
 
 
 Another head hangs lowly
-
 Child is slowly taken
-
 And the violence caused such silence
-
 Who are we mistaken?
 
- 
-
 But you see, it's not me
-
 It's not my family
-
 In your head, in your head, they are fighting
-
 With their tanks and their bombs
-
 And their bombs, and their guns
-
 In your head, in your head they are crying
 
- 
-
 In your head, in your head
-
 Zombie, zombie, zombie-ie-ie
-
 What's in your head, in your head
-
 Zombie, zombie, zombie-ie-ie-ie, oh
 
- 
-
 Du, du, du, du
-
 Du, du, du, du
-
 Du, du, du, du
-
-Du, du, du, du
-
- 
+Du, du, du, du 
 
 Another mother's breaking heart is taking over
-
 When the violence causes silence
-
 We must be mistaken
 
- 
-
 It's the same old theme
-
 Since nineteen-sixteen
-
 In your head, in your head, they're still fighting
-
 With their tanks and their bombs
-
 And their bombs, and their guns
-
 In your head, in your head, they are dying
 
- 
-
 In your head, in your head
-
 Zombie, zombie, zombie-ie-ie
-
 What's in your head, in your head
-
 Zombie, zombie, zombie-ie-ie-ie
-
- 
 
 Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
@@ -719,157 +636,82 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
 
 Twenty-five years
-
 And my life is still
-
 I'm trying to get up
-
 That great big hill of hope
-
 For a destination
 
- 
-
 I realized quickly
-
 When I knew I should
-
 That the world was made up
-
 For this brotherhood of man
-
 For whatever that means
 
- 
-
 And so I cry sometimes
-
 When I'm lying in bed
-
 Just to get it all out
-
 What's in my head
-
 And I, I am feeling
-
 A little peculiar
 
- 
-
 And so I wake in the morning
-
-And I step outside
-
-And I take deep breath
-
+And thenn I step outside
+And I take a deep breath
 And I get real high
-
-And I scream from the top of my lungs
-
+And I
+Scream from the top of my lungs
 What's going on?
 
- 
-
 And I say, hey, yeah, yeah-eah
-
 Hey, yeah, yeah
-
 I said, hey! What's goin' on?
 
- 
-
 And I sing, hey, yeah, yeah-eah
-
 Hey, yeah, yeah
-
 I said, hey! What's going on?
-
- 
 
 And I try, oh, my God, do I try
-
 I try all the time
-
 In this institution
 
- 
-
 And I pray, oh, my God, do I pray
-
 I pray every single day
-
 For a revolution
 
- 
-
 And so I cry sometimes
-
 When I'm lying in bed
-
 Just to get it all out
-
 What's in my head
-
 And I, I am feeling
-
 A little peculiar
 
- 
-
 And so I wake in the morning
-
 And I step outside
-
 And I take deep breath
-
 And I get real high
-
 And I scream from the top of my lungs
-
 What's going on?
 
- 
-
 And I say, hey, yeah, yeah-eah
-
 Hey, yeah, yeah
-
 I said, hey! What's goin' on?
 
- 
-
 And I sing, hey, yeah, yeah-eah
-
 Hey, yeah, yeah
-
 I said, hey! What's going on?
 
- 
-
 And I say, hey, yeah, yeah-eah
-
 Hey, yeah, yeah
-
 I said, hey! What's goin' on?
 
- 
-
 And I sing, hey, yeah, yeah-eah
-
 Hey, yeah, yeah, yeah, yeah
-
 I said, hey! What's going on?
-
- 
 
 Twenty-five years
-
 And my life is still
-
 I'm trying to get up
-
 That great big hill of hope
-
 For a destination
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -883,103 +725,51 @@ Whoa-oh-oh-oh-whoa
 
 
 There she stood in the street
-
 Smilin' from her head to her feet
-
- 
-
 I said, "hey, what is this?
-
 Now baby", maybe,
-
 Maybe she's in need of a kiss
-
- 
-
 I said, "hey, what's your name, baby?
-
 Maybe we can see things the same"
-
- 
-
 Now don't you wait, or hesitate
-
 Let's move before they raise the parking rate
 
- 
-
 All right now, baby, it's all right now
-
 All right now, baby, it's all right now
-
 Let me tell you now
 
- 
-
 I took her home to my place
-
 Watchin' every move on her face
-
- 
-
 She said, "look, what's your game, baby?
-
 Are you tryin' to put me in shame?"
 
- 
-
 I said, "slow, don't go so fast,
-
  don't you think that love can last?"
-
- 
-
 She said, "Love, Lord above
-
 Now you're tryin' to trick me in love"
-
- 
-
-All right now, baby, it's all right now
+Ow!
 
 All right now, baby, it's all right now
-
+All right now, baby, it's all right now
 It's all right now
-
- 
 
 Oh yeah, whoa
 
 Let me tell you all about it now, yeah
 
 I took her home to my place
-
 Watchin' every move on her face
-
 She said, "Look, what's your game?
-
 Are you tryin' to put me in shame?"
 
- 
-
 I said, "Slow, don't go so fast,
-
  don't you think that love can last?"
-
- 
-
 She said, "Love, Lord above
-
 Now you're tryin' to trick me in love"
 
- 
-
 All right now, baby, it's all right now
-
 All right now, baby, it's all right now
-
 All right now, baby, it's all right now
-
 All right now, baby, it's all right now
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -993,147 +783,77 @@ Phil Collins
 Easy lover
 
 She'll get a hold on you believe it
-
 Like no other
-
 Before you know it you'll be on your knees
-
 She's an easy lover
-
 She'll take your heart but you won't feel it
-
 She's like no other
-
 And I'm just trying to make you see
-
- 
 
 She's the kind of girl you dream of
-
 Dream of keeping hold of
-
 You'd better forget it
-
 You'll never get it
-
 She will play around and leave you
-
 Leave you and deceive you
-
 Better forget it
-
 Oh you'll regret it
-
- 
 
 No you'll never change her, so leave it, leave it
-
 Get out quick cos seeing is believing
-
 It's the only way
-
 You'll ever know
 
- 
-
 She's an easy lover
-
 She'll get a hold on you believe it
-
 Like no other
-
 Before you know it you'll be on your knees
-
 She's an easy lover
-
 She'll take your heart but you won't feel it
-
 She's like no other
-
 And I'm just trying to make you see
 
- 
-
 You're the one that wants to hold her
-
 Hold her and control her
-
 You'd better forget it
-
 You'll never get it
-
 For she'll say there's no other
-
 Till she finds another
-
 Better forget it
-
 Oh you'll regret it
 
- 
-
 And don't try to change her, just leave it, leave it
-
 You're not the only one, ooh seeing is believing
-
 It's the only way
-
 You'll ever know, oh
-
- 
 
 No don't try to change her, just leave it, leave it
-
 You're not the only one, ooh seeing is believing
-
 It's the only way
-
 You'll ever know, oh
 
- 
-
 She's an easy lover (she's a easy lover)
-
 She'll get a hold on you believe it (get a hold on you)
-
 (She's) like no other
-
 Before you know it you'll be on your knees (you'll be down onyour knees)
 
 She's an easy lover
-
 She'll take your heart but you won't feel it (you won't feel it)
-
 She's like no other
-
 And I'm just trying to make you see (trying to make you see)
 
- 
-
 She's an easy lover (she's a easy lover)
-
 She'll get a hold on you believe it (get a hold on you)
-
 (She's) like no other
-
 Before you know it you'll be on your knees (you'll be down onyour knees)
-
 She's an easy lover
-
 She'll take your heart but you won't feel it (you won't feel it)
-
 She's like no other
-
 And I'm just trying to make you see (trying to make you see)
 
- 
-
 She's an easy lover (she's a easy lover)
-
 She'll get a hold on you believe it (get a hold on you)
-
 (She's) like no other
-
 Before you know it you'll be on your knees (you'll be down onyour knees)
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1144,61 +864,33 @@ Deep Purple
 
 
 Can you remember, remember my name?
-
 As I flow through your life
-
 A thousand oceans I have flown
-
 And cold, cold spirits of ice
-
 All my life, I am the echo of your past (echo of your past)
 
- 
-
 I am returning, the echo of a point in time
-
 Distant faces shine
-
 A thousand warriors I have known
-
 Oh, and laughing, as the spirits appear
-
 All, all your life, shadows of another day
 
- 
-
 And if you hear me talking on the wind
-
 You've got to understand
-
 We must remain perfect strangers
 
- 
-
 (I know)
-
 I know I must remain inside this silent well of sorrow
 
- 
-
 A strand of silver, hanging through the sky
-
 Touching more than you see
-
 The voice of ages in your mind
-
 Oh, is aching, with the dead of the night
-
 Oh oh, precious life
-
 Your tears are lost in falling rain
 
- 
-
 And if you hear me talking on the wind
-
 You've got to understand
-
 We must remain perfect strangers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1209,61 +901,33 @@ Peter Frampton
 
 
 We are the people one and all
-
 From deliverance to the fall
-
 From the battle and the heat
-
 To our triumph and defeat
 
- 
-
 We are the young ones crying out
-
 Full of anger, full of doubt
-
 And we're breaking all of the rules
-
 Never choosing to be fools
-
- 
 
 We are tired of being used
-
 We are constantly excused
-
 In the battle and the heat
-
 In the shadow of retreat
 
- 
-
 We are the young ones crying out
-
 Full of anger, full of doubt
-
 And we're breaking all of the rules
-
 Never choosing to be fools
 
- 
-
 We are the people one and all
-
 From deliverance to the fall
-
 From the bitter to the brave
-
 From the cradle to the grave
 
- 
-
 We are the young ones crying out
-
 Full of anger, full of doubt
-
 And we're breaking all of the rules
-
 Never choosing to be fools
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1365,77 +1029,46 @@ The Police
 
 
 Another suburban family morning
-
 Grandmother screaming at the wall
-
 We have to shout above the din of our Rice Crispies
-
 We can't hear anything at all
-
 Mother chants her litany of boredom and frustration
-
 But we know all her suicides are fake
-
 Daddy only stares into the distance
-
 There's only so much more that he can take
 
 Many miles away
-
 Something crawls from the slime
-
 At the bottom of a dark Scottish lake
 
- 
-
 Another industrial ugly morning
-
 The factory belches filth into the sky
-
 He walks unhindered through the picket lines today
-
 He doesn't think to wonder why
 
 The secretaries pout and preen like
-
 cheap tarts in a red light street
-
 But all he ever thinks to do is watch
-
 And every single meeting with his so-called superior
-
 Is a humiliating kick in the crotch
 
 Many miles away
-
 Something crawls to the surface
-
 Of a dark Scottish loch
 
- 
-
 Another working day has ended
-
 Only the rush hour hell to face
-
 Packed like lemmings into shiny metal boxes
-
 Contestants in a suicidal race
 
 Daddy grips the wheel and stares alone into the distance
-
 He knows that something somewhere has to break
-
 He sees the family home now looming in the headlights
-
 The pain upstairs that makes his eyeballs ache
 
 Many miles away
-
 There's a shadow on the door
-
 Of a cottage on the shore
-
 Of a dark Scottish lake
 
 Many miles away, many miles away
@@ -1448,141 +1081,77 @@ Eagles
 
 
 On a dark desert highway
-
 Cool wind in my hair
-
 Warm smell of colitas
-
 Rising up through the air
-
 Up ahead, in the distance
-
 I saw a shimmering light
-
 My head grew heavy and my sight grew dim
-
 I had to stop for the night
 
- 
-
 There she stood, in the doorway
-
 I heard the Mission bell
-
 And I was thinking to myself
-
 This could be heaven or this could be hell
-
 Then she lit up a candle and she showed me the way
-
 There were voices down the corridor
-
 I thought I heard them say
 
- 
-
 Welcome to the Hotel California
-
 Such a lovely place
-
 (Such a lovely place)
-
 Such a lovely face
 
 Plenty of room at the Hotel California
-
 Any time of year
-
 (Any time of year)
-
 You can find it here
 
- 
-
 Her mind is Tiffany-twisted
-
 She got the Mercedes-Benz
-
 She got a lot of pretty, pretty boys
-
 That she calls friends
 
 How they dance in the courtyard
-
 Sweet summer sweat
-
 Some dance to remember
-
 Some dance to forget
 
- 
-
 So I called up the captain
-
 Please, bring me my wine
-
 He said: We haven't had that spirit here since
-
 Nineteen sixty-nine
 
 And, still, those voices are calling from far away
-
 Wake you up in the middle of the night
-
 Just to hear them say
 
- 
-
 Welcome to the Hotel California
-
 Such a lovely place
-
 (Such a lovely place)
-
 Such a lovely face
 
 They're livin' it up at the Hotel California
-
 What a nice surprise
-
 (What a nice surprise)
-
 Bring your alibis
 
- 
-
 Mirrors on the ceiling
-
 The pink champagne on ice
-
 And she said: We are all just prisoners here
-
 Of our own device
-
 And in the master's chambers
-
 They gathered for the feast
-
 They stab it with their steely knives
-
 But they just can't kill the beast
 
- 
-
 Last thing I remember
-
 I was running for the door
-
 I had to find the passage back
-
 To the place I was before
-
 Relax, said the night man
-
 We are programmed to receive
-
 You can check out any time you like
-
 But you can never leave
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
