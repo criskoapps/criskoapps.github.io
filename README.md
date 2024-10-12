@@ -1,8 +1,38 @@
 # Belenus - letras das músicas ensaiadas
 
- 
+[Come Together](#come-together)
+[Sunshine Of Your Love](#sunshine-of-your-love)
+[Listen To The Music](#listen-to-the-music)
+[Behind Blue Eyes](#behind-blue-eyes)
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you)
+[Because The Night](#because-the-night)
+[Jumpin' Jack Flash](#jumpin-jack-flash)
+[Whiskey In The Jar](#whiskey-in-the-jar)
+[Man in the Box](#man-in-the-box)
+[Zombie](#zombie)
+[What's Up?](#whats-up)
+[All Right Now](#all-right-now)
+[Easy Lover](#easy-lover)
+[Perfect Strangers](#perfect-strangers)
+[Breaking All The Rules](#breaking-all-the-rules)
+[Alive](#alive)
+[Stand By Me](#stand-by-me)
+[Synchronicity II](#synchronicity-ii)
+[Hotel California](#hotel-california)
+[Psycho Killer](#psycho-killer)
+[Wish You Were Here](#wish-you-were-here)
+[Aluga-se](#aluga-se)
+[Agora Só Falta Você](#agora-só-falta-você)
+[Malandragem](#malandragem)
+[Blues da Piedade](#blues-da-piedade)
+[Dream On](#dream-on)
+[Heaven](#heaven)
+[Amor](#amor)
+[32 Dentes](#32-dentes)
+[Fátima](#fátima)
 
-Come Together
+
+### Come Together
 The Beatles
 
 
@@ -134,10 +164,13 @@ Come together, yeah
 
 Come together, yeah
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Sunshine Of Your Love
+### Sunshine Of Your Love
 Cream
+
+
 It's getting near dawn
 
 When lights close their tired eyes
@@ -212,10 +245,12 @@ To be where I'm going
 
 In the sunshine of your love
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Listen To The Music
+### Listen To The Music
 Doobie Brothers
+
 Don't you feel it growin', day by day
 
 People gettin' ready for the news
@@ -302,10 +337,13 @@ Oh, oh, listen to the music
 
 All the time
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Behind Blue Eyes
+### Behind Blue Eyes
 The Who
+
+
 No one knows what it's like
 
 To be the bad man
@@ -404,10 +442,13 @@ To be the sad man
 
 Behind blue eyes
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-I Hate Myself For Loving You
+### I Hate Myself For Loving You
 Joan Jett & the Blackhearts
+
+
 Midnight gettin' uptight, where are you?
 
 You said you'd meet me, now it's quarter to two
@@ -512,10 +553,13 @@ I hate myself
 
 I hate myself for loving you
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Because The Night
+### Because The Night
 Patti Smith
+
+
 Take me now, baby, here as I am
 
 Pull me close, try and understand
@@ -624,10 +668,13 @@ Because the night
 
 Belongs to us
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Jumpin' Jack Flash
+### Jumpin' Jack Flash
 The Rolling Stones
+
+
 I was born in a crossfire hurricane
 
 And I howled at my ma in the driving rain
@@ -682,11 +729,10 @@ Jumpin' Jack Flash, it's a gas
 
 Jumpin' Jack Flash, it's a gas
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
- 
-
-Whiskey In The Jar
+### Whiskey In The Jar
 Metallica
 
 
@@ -769,13 +815,14 @@ Musha ring, dum-a-doo dum-a-da
 Musha ring, dum-a-doo dum-a-da
 
 Musha ring, dum-a-doo dum-a-da
-
  
+[índice](#belenus---letras-das-músicas-ensaiadas)
 
- 
 
-Man in the Box
+### Man in the Box
 Alice In Chains
+
+
 I'm the man in the box
 
 Buried in my shit
@@ -848,10 +895,13 @@ Oh, feed my eyes
 
 (Now you've sewn them) shut
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Zombie
+### Zombie
 The Cranberries
+
+
 Another head hangs lowly
 
 Child is slowly taken
@@ -930,8 +980,13 @@ Zombie, zombie, zombie-ie-ie-ie
 
 Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
-What's Up?
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### What's Up?
 4 Non Blondes
+
+
 Twenty-five years
 
 And my life is still
@@ -1086,13 +1141,15 @@ That great big hill of hope
 
 For a destination
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-All Right Now
+### All Right Now
 Free
+
+
 Whoa-oh-oh-oh-whoa
 
- 
 
 There she stood in the street
 
@@ -1194,12 +1251,14 @@ All right now, baby, it's all right now
 
 All right now, baby, it's all right now
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
- 
-
-Easy Lover (feat. Philip Bayle)
+### Easy Lover 
+(feat. Philip Bayle)
 Phil Collins
+
+
 Easy lover
 
 She'll get a hold on you believe it
@@ -1346,10 +1405,13 @@ She'll get a hold on you believe it (get a hold on you)
 
 Before you know it you'll be on your knees (you'll be down onyour knees)
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Perfect Strangers
+### Perfect Strangers
 Deep Purple
+
+
 Can you remember, remember my name?
 
 As I flow through your life
@@ -1408,10 +1470,13 @@ You've got to understand
 
 We must remain perfect strangers
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Breaking All The Rules
+### Breaking All The Rules
 Peter Frampton
+
+
 We are the people one and all
 
 From deliverance to the fall
@@ -1470,16 +1535,12 @@ And we're breaking all of the rules
 
 Never choosing to be fools
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
- 
-
-Alive
-
+### Alive
 Pearl Jam
  
-
-
 
 Son, she said, have I got a little story for you
 What you thought was your daddy was nothing but a–
@@ -1520,13 +1581,12 @@ Yeah yeah yeah yeah yeah yeah yeah!
 Ooh yeah, ooh ooh
 Ooh yeah, yeah yeah yeah
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Stand By Me
-
+### Stand By Me
 Ben E. King
  
-
 
 When the night has come
 And the land is dark
@@ -1566,8 +1626,13 @@ Wow, just stand now
 Oh, stand
 Stand by me
 
-Synchronicity II
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Synchronicity II
 The Police
+
+
 Another suburban family morning
 
 Grandmother screaming at the wall
@@ -1644,10 +1709,13 @@ Of a dark Scottish lake
 
 Many miles away, many miles away
 
+[índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-Hotel California
+### Hotel California
 Eagles
+
+
 On a dark desert highway
 
 Cool wind in my hair
@@ -1786,4 +1854,571 @@ You can check out any time you like
 
 But you can never leave
 
- 
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+
+### Psycho Killer
+Talking Heads
+
+I can't seem to face up to the facts
+I'm tense and nervous and I can't relax
+I can't sleep 'cause my bed's on fire
+Don't touch me, I'm a real live wire
+
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh, oh, aye-ya-ya-ya-ya
+
+You start a conversation, you can't even finish it
+You're talking a lot, but you're not saying anything
+When I have nothing to say, my lips are sealed
+Say something once, why say it again?
+
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh, oh, aye-ya-ya-ya-ya
+
+Ce que j'ai fait, ce soir-là
+Ce qu'elle a dit, ce soir-là
+Réalisant mon espoir
+Je me lance, vers la gloire, okay
+Aye-ya-ya-ya-ya-ya-ya-ya-ya-ya-ya
+We are vain and we are blind
+I hate people when they're not polite
+
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh
+Psycho killer, qu'est-ce que c'est?
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
+Run, run, run, run, run, run, run away
+Oh, oh, oh, oh, aye-ya-ya-ya-ya
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+### Wish You Were Here
+Pink Floyd
+
+So, so you think you can tell
+Heaven from hell?
+Blue skies from pain?
+Can you tell a green field
+From a cold steel rail?
+A smile from a veil?
+Do you think you can tell?
+
+Did they get you to trade
+Your heroes for ghosts?
+Hot ashes for trees?
+Hot air for a cool breeze?
+Cold comfort for change?
+Did you exchange
+A walk on part in the war
+For a lead role in a cage?
+
+How I wish
+How I wish you were here
+We're just two lost souls
+Swimming in a fish bowl year after year
+Running over the same old ground
+What have we found?
+The same old fears
+Wish you were here
+
+(fazer vocalize no lugar do teclado)
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Aluga-se
+Raul Seixas
+
+A solução pro nosso povo eu vou dá
+Negócio bom assim ninguém nunca viu
+Tá tudo pronto aqui, é só vim pegar
+A solução é alugar o Brasil!
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+É tudo free!
+Tá na hora, agora é free
+Vamo embora dá lugar pros gringo entrar
+Esse imóvel tá pra alugar
+Ah! Ah! Ah! Ah! Ah! Ah!
+
+Os estrangeiros, eu sei que eles vão gostar
+Tem o Atlântico, tem vista pro mar
+A Amazônia é o jardim do quintal
+E o dólar deles paga o nosso mingau
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+É tudo free!
+Tá na hora agora é free
+Vamo embora dá lugar pros gringo entrar
+Pois esse imóvel está pra alugar
+Alugar! Ei!
+Grande solução!
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+Agora é free!
+Tá na hora, é tudo free
+Vamo embora dá lugar pros outro entrar
+Pois esse imóvel tá pra alugar
+Ah! Ah! Ah! Ah!
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+Agora é free!
+Tá na hora é tudo free
+Vamo embora dá lugar pros gringo entrar
+Pois esse imóvel
+Está pra alugar
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+Agora é free!
+Tá na hora, é tudo free
+Vamo embora dá lugar pros outro entrar
+Pois esse imóvel tá pra alugar
+Ah! Ah! Ah! Ah!
+
+Nós não vamo paga nada
+Nós não vamo paga nada
+Agora é free!
+Tá na hora é tudo free
+Vamo embora dá lugar pros gringo entrar
+Pois esse imóvel
+Está pra alugar
+
+Nós não vamo paga nada!
+Nós não vamo paga nada!
+Nós não vamo paga nada!
+Nós não vamo paga nada!
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Agora Só Falta Você
+Rita Lee
+
+Um belo dia resolvi mudar
+E fazer tudo o que eu queria fazer
+Me libertei daquela vida vulgar
+Que eu levava estando junto a você
+E em tudo que eu faço
+Existe um porquê
+Eu sei que eu nasci
+Sei que eu nasci pra saber
+
+E fui andando sem pensar em voltar
+E sem ligar pro que me aconteceu
+Um belo dia vou lhe telefonar
+Pra lhe dizer que aquele sonho cresceu
+No ar que eu respiro
+Eu sinto prazer
+De ser quem eu sou
+De estar onde estou
+Agora só falta você
+
+(Solo - instrumental da 2a parte)
+
+Um belo dia resolvi mudar
+E fazer tudo o que eu queria fazer
+Me libertei daquela vida vulgar
+Que eu levava estando junto a você
+E em tudo que eu faço
+Existe um porquê
+Eu sei que eu nasci
+Sei que eu nasci pra saber
+Saber o que
+E fui andando sem pensar em voltar
+E sem ligar pro que me aconteceu
+Um belo dia vou lhe telefonar
+Pra lhe dizer que aquele sonho cresceu
+No ar que eu respiro
+Eu sinto prazer
+De ser quem eu sou
+De estar onde estou
+
+Agora só falta você
+Agora só falta você
+Agora só falta você
+Agora só falta você
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Malandragem
+Cássia Eller
+
+Quem sabe eu ainda sou uma garotinha
+Esperando o ônibus da escola, sozinha
+Cansada com minhas meias três quartos
+Rezando baixo pelos cantos
+Por ser uma menina má
+
+Quem sabe o príncipe virou um chato
+Que vive dando no meu saco
+Quem sabe a vida é não sonhar
+
+Eu só peço a Deus
+Um pouco de malandragem
+Pois sou criança
+E não conheço a verdade
+Eu sou poeta e não aprendi a amar
+Eu sou poeta e não aprendi a amar
+
+Bobeira é não viver a realidade
+E eu ainda tenho uma tarde inteira
+Eu ando nas ruas
+Eu troco um cheque
+Mudo uma planta de lugar
+Dirijo meu carro
+Tomo o meu pileque
+E ainda tenho tempo pra cantar
+
+Eu só peço a Deus
+Um pouco de malandragem
+Pois sou criança
+E não conheço a verdade
+Eu sou poeta e não aprendi a amar
+Eu sou poeta e não aprendi a amar
+
+Eu ando nas ruas
+Eu troco um cheque
+Mudo uma planta de lugar
+Dirijo meu carro
+Tomo o meu pileque
+E ainda tenho tempo pra cantar
+
+Eu só peço a Deus
+Um pouco de malandragem
+Pois sou criança
+E não conheço a verdade
+Eu sou poeta e não aprendi a amar
+Eu sou poeta e não aprendi a amar
+(Repete 3x)
+
+Quem sabe eu ainda sou uma garotinha!
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Blues da Piedade
+Cazuza
+
+Agora eu vou cantar pros miseráveis
+Que vagam pelo mundo derrotados
+Pra essas sementes mal plantadas
+Que já nascem com cara de abortadas
+Pras pessoas de alma bem pequena
+Remoendo pequenos problemas
+Querendo sempre aquilo que não têm
+
+Pra quem vê a luz
+Mas não ilumina suas minicertezas
+Vive contando dinheiro
+E não muda quando é Lua cheia
+Pra quem não sabe amar
+Fica esperando
+Alguém que caiba no seu sonho
+Como varizes que vão aumentando
+Como insetos em volta da lâmpada
+
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
+Pra essa gente careta e covarde (ah)
+Vamos pedir piedade
+Senhor, piedade  (Senhor! Piedade!)
+Lhes dê grandeza e um pouco de coragem
+
+Quero cantar só pras pessoas fracas
+Que tão no mundo e perderam a viagem
+Quero cantar o blues
+Com o pastor e o bumbo na praça
+Vamos pedir piedade
+Pois há um incêndio sob a chuva rala
+Somos iguais em desgraça
+Vamos cantar o blues da piedade
+
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
+Pra essa gente careta e covarde (ah)
+Vamos pedir piedade
+Senhor, piedade  (Senhor! Piedade!)
+Lhes dê grandeza e um pouco de coragem
+Pra quem não sabe amar
+Fica esperando
+Alguém que caiba no seu sonho
+Como varizes que vão aumentando
+Como insetos em volta da lâmpada
+
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
+Pra essa gente careta e covarde (ah)
+Vamos pedir piedade
+Senhor, piedade  (Senhor! Piedade!)
+Lhes dê um pouco de coragem
+
+Ah, ah, um pouco de coragem
+Ah, ah, lhes dê grandeza e um pouco de coragem
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Dream On
+Aerosmith
+
+Every time that I look in the mirror
+All these lines on my face getting clearer
+The past is gone
+It went by like dusk to dawn
+Isn't that the way?
+Everybody's got the dues in life to pay, yeah
+
+I know nobody knows
+Where it comes and where it goes
+I know it's everybody's sin
+You've got to lose to know how to win
+
+Half my life's in books' written pages
+Live and learn from fools and from sages
+You know it's true, oh
+All the things come back to you
+
+Sing with me, sing for the year
+Sing for the laughter and sing for the tear
+Sing with me, if it's just for today
+Maybe tomorrow the good Lord will take you away
+
+Yeah, sing with me, sing for the year
+Sing for the laughter and sing for the tear
+Sing with me, if it's just for today
+Maybe tomorrow the good Lord will take you away
+
+Dream on, dream on, dream on
+Dream until the dream come true
+Dream on, dream on, dream on
+Dream until your dream come true
+Dream on, dream on, dream on
+Dream on, dream on, dream on
+Dream on, oh
+
+Sing with me, sing for the year
+Sing for the laughter and sing for the tear
+Sing with me, if it's just for today
+Maybe tomorrow the good Lord will take you away
+
+Sing with me, sing for the year
+Sing for the laughter and sing for the tear
+Sing with me, if it's just for today
+Maybe tomorrow the good Lord will take you away
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Heaven
+Bryan Adams
+
+Oh, thinking about our younger years
+There was only you and me
+We were young and wild and free
+
+Now nothing can take you away from me
+We've been down that road before
+But that's over now
+You keep me coming back for more
+
+Baby, you're all that I want
+When you're lying here in my arms
+I'm finding it hard to believe
+We're in heaven
+
+And love is all that I need
+And I found it there in your heart
+It isn't too hard to see
+We're in heaven
+
+Oh, once in your life you find someone
+Who will turn your world around
+Bring you up when you're feeling down
+
+Yeah, nothing could change what you mean to me
+Oh, there's lots that I could say
+But just hold me now
+'Cause our love will light the way
+
+And baby you're all that I want
+When you're lying here in my arms
+I'm finding it hard to believe
+We're in heaven
+
+Yeah, love is all that I need
+And I found it there in your heart
+It isn't too hard to see
+We're in heaven
+Yeah
+
+I've been waiting for so long
+For something to arrive
+For love to come along
+
+Now our dreams are coming true
+Through the good times and the bad
+Yeah, I'll be standing there by you, oh
+
+And baby you're all that I want
+When you're lying here in my arms
+I'm finding it hard to believe
+We're in heaven
+
+And love is all that I need
+And I found it there in your heart
+It isn't too hard to see
+We're in heaven, heaven, woah
+
+You're all that I want
+You're all that I need
+
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Amor
+Secos & Molhados
+
+Leve, como leve pluma
+Muito leve, leve pousa
+Muito leve, leve pousa
+
+Na simples e suave coisa
+Suave coisa nenhuma
+Suave coisa nenhuma
+
+Sombra, silêncio ou espuma
+Nuvem azul
+Que arrefece
+
+Simples e suave coisa
+Suave coisa nenhuma
+Que em mim amadurece
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### 32 Dentes
+Titãs
+
+Eu nunca mais vou dizer
+O que realmente penso
+Eu nunca mais vou dizer
+O que realmente sinto
+
+Eu juro
+Eu juro
+
+Eu nunca mais vou dizer
+O que realmente penso
+Eu nunca mais vou dizer
+O que realmente sinto
+
+Eu juro
+Eu juro por Deus
+Eu juro
+Eu juro por Deus
+
+Não confio em ninguém
+Não confio em ninguém
+Não confio em ninguém com mais de 30
+Não confio em ninguém com 32 dentes
+
+Meu pai um dia me falou
+Pra que eu nunca mentisse
+Mas ele se esqueceu de dizer a verdade
+Ha! Ha! Ha! Ha!
+
+Eu nunca mais vou dizer
+O que realmente penso
+Eu nunca mais vou dizer
+O que realmente sinto
+
+Eu juro (eu juro)
+Eu juro (eu juro)
+
+Eu nunca mais vou dizer
+O que realmente penso
+Eu nunca mais vou dizer
+O que realmente sinto
+
+Eu juro (eu juro)
+Eu juro por Deus
+Eu juro (eu juro)
+Eu juro por Deus
+
+Não confio em ninguém
+Não confio em ninguém
+Não confio em ninguém com mais de 30
+Não confio em ninguém com 32 dentes
+
+32 dentes
+
+Eu não sei fazer música, mas eu faço
+Eu não sei cantar as músicas que eu faço, mas eu canto
+Ninguém sabe nada
+Ninguém sabe nada
+Ninguém sabe nada
+Ninguém sabe nada
+
+
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+### Fátima
+Capital Inicial
+
+Vocês esperam uma intervenção divina
+Mas não sabem que o tempo agora está contra vocês
+
+Vocês se perdem no meio de tanto medo
+De não conseguir dinheiro pra comprar sem se vender
+
+E vocês armam seus esquemas ilusórios
+Continuam só fingindo que o mundo ninguém fez
+
+Mas acontece que tudo tem começo
+E se começa um dia acaba, eu tenho pena de vocês
+
+E as ameaças de ataque nuclear
+Bombas de nêutrons não foi Deus quem fez
+Alguém, alguém um dia vai se vingar
+Vocês são vermes, pensam que são reis
+Não quero ser como vocês
+Eu não preciso mais
+Eu já sei o que eu tenho que saber
+E agora tanto faz
+
+Três crianças sem dinheiro e sem moral
+Não ouviram a voz suave que era uma lágrima
+E se esqueceram de avisar pra todo mundo
+Ela talvez tivesse um nome e era: Fátima
+E de repente o vinho virou água
+E a ferida não cicatrizou
+E o limpo se sujou
+E no terceiro dia ninguém ressuscitou
+
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
