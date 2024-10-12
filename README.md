@@ -34,6 +34,9 @@
 [Fátima](#fátima)
 
 
+# Querigma - letras das bandas de alunos
+
+
 ### Come Together 
 The Beatles
 
@@ -1634,3 +1637,136 @@ E o limpo se sujou \
 E no terceiro dia ninguém ressuscitou
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+### I Don't Wanna Lose You
+Tina Turner
+
+Oh \
+Oh, oh
+
+Women of a certain age \
+They learn to rely and judge all his responses \
+Having played the mating game \
+She doesn't waste time 'cause all that she wants is \
+Really and honest emotions \
+Ones he can't help but show \
+Though I hardly know your name \
+I know about love and I know
+
+I don't wanna lose you \
+I don't even wanna say goodbye, oh, no \
+I just wanna hold on to this \
+True love, true love
+
+Women who have made mistakes \
+Are a little afraid \
+They don't like taking chances \
+She will play the waiting game \
+She's never impressed by those manly advances \
+I know I've only just met you \
+Baby, I should know better \
+But when you look at me that way \
+There's something inside that's so right
+
+I don't wanna lose you \
+I don't even wanna say goodbye, oh, no \
+I just wanna hold on to this \
+True love, true love
+
+I don't wanna lose you \
+And I always wanna feel this way, oh, yeah \
+'Cause every time I'm with you, I feel \
+True love, true love, true love
+
+Tell me you're real \
+You're not pretending \
+Let's make a deal \
+'Cause my heart's depending on you, oh \
+Oh, baby
+
+I don't wanna lose you \
+I don't even wanna say goodbye, oh, no \
+I just wanna hold on to this \
+True love, true love
+
+Oh, don't wanna lose you \
+And I always wanna feel this way, oh, yeah \
+'Cause every time I'm with you, I feel \
+True love, true love (true love)
+
+I don't wanna lose you \
+I don't even wanna say goodbye, oh, no \
+I just wanna hold on to this \
+True love, true love
+
+(I don't wanna lose you) I don't wanna lose you \
+And I always want to feel this way \
+'Cause every time I'm with you, I feel \
+True love, true love, true love
+
+[índice](#querigma---letras-das-bandas-de-alunos)
+
+
+### Heathens
+Twenty One Pilots
+
+All my friends are heathens, take it slow \
+Wait for them to ask you who you know \
+Please, don't make any sudden moves \
+You don't know the half of the abuse
+
+All my friends are heathens, take it slow \
+Wait for them to ask you who you know \
+Please, don't make any sudden moves \
+You don't know the half of the abuse
+
+Welcome to the room of people \
+Who have rooms of people that they loved one day \
+Docked away \
+Just because we check the guns at the door \
+Doesn't mean our brains will change from hand grenades
+
+You'll never know the psychopath sitting next to you \
+You'll never know the murderer sitting next to you \
+You'll think: How'd I get here, sitting next to you? \
+But after all I've said, please, don't forget
+
+All my friends are heathens, take it slow \
+Wait for them to ask you who you know \
+Please, don't make any sudden moves \
+You don't know the half of the abuse
+
+We don't deal with outsiders very well \
+They say newcomers have a certain smell \
+You have trust issues, not to mention \
+They say they can smell your intentions
+
+You'll never know the freak show sitting next to you \
+You'll have some weird people sitting next to you \
+You'll think: How did I get here, sitting next to you? \
+But after all I've said, please, don't forget
+
+(Watch it) \
+(Watch it)
+
+All my friends are heathens, take it slow \
+Wait for them to ask you who you know \
+Please, don't make any sudden moves \
+You don't know the half of the abuse
+
+All my friends are heathens, take it slow \
+(Watch it) \
+Wait for them to ask you who you know \
+(Watch it) \
+Please, all my friends are heathens, take it slow \
+(Watch it) \
+Wait for them to ask you who you know
+
+Why'd you come? You knew you should have stayed
+(It's blasphemy) \
+I tried to warn you just to stay away \
+And now they're outside ready to bust \
+It looks like you might be one of us
+
+
+[índice](#querigma---letras-das-bandas-de-alunos)
