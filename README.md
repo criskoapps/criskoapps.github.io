@@ -35,6 +35,8 @@
 
 
 # Querigma - letras das bandas de alunos
+[I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
+[Heathens](#heathens)
 
 
 ### Come Together 
