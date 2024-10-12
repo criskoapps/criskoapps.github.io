@@ -31,12 +31,12 @@
 [Heaven](#heaven) | 
 [Amor](#amor) | 
 [32 Dentes](#32-dentes) | 
-[Fátima](#fátima)
+[Fátima](#fátima) |
 
 
 # Querigma - letras das bandas de alunos
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) | 
-[Heathens](#heathens)
+[Heathens](#heathens) |
 
 
 ### Come Together 
