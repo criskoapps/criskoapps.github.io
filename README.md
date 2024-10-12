@@ -1,39 +1,39 @@
 # Belenus - letras das músicas ensaiadas
 
-[Come Together](#come-together)|
-[Sunshine Of Your Love](#sunshine-of-your-love)|
-[Listen To The Music](#listen-to-the-music)|
-[Behind Blue Eyes](#behind-blue-eyes)|
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you)|
-[Because The Night](#because-the-night)|
-[Jumpin' Jack Flash](#jumpin-jack-flash)|
-[Whiskey In The Jar](#whiskey-in-the-jar)|
-[Man in the Box](#man-in-the-box)|
-[Zombie](#zombie)|
-[What's Up?](#whats-up)|
-[All Right Now](#all-right-now)|
-[Easy Lover](#easy-lover)|
-[Perfect Strangers](#perfect-strangers)|
-[Breaking All The Rules](#breaking-all-the-rules)|
-[Alive](#alive)|
-[Stand By Me](#stand-by-me)|
-[Synchronicity II](#synchronicity-ii)|
-[Hotel California](#hotel-california)|
-[Psycho Killer](#psycho-killer)|
-[Wish You Were Here](#wish-you-were-here)|
-[Aluga-se](#aluga-se)|
-[Agora Só Falta Você](#agora-só-falta-você)|
-[Malandragem](#malandragem)|
-[Blues da Piedade](#blues-da-piedade)|
-[Dream On](#dream-on)|
-[Heaven](#heaven)|
-[Amor](#amor)|
-[32 Dentes](#32-dentes)|
+[Come Together](#come-together) |
+[Sunshine Of Your Love](#sunshine-of-your-love) |
+[Listen To The Music](#listen-to-the-music) |
+[Behind Blue Eyes](#behind-blue-eyes) |
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
+[Because The Night](#because-the-night) |
+[Jumpin' Jack Flash](#jumpin-jack-flash) |
+[Whiskey In The Jar](#whiskey-in-the-jar) |
+[Man in the Box](#man-in-the-box) |
+[Zombie](#zombie) |
+[What's Up?](#whats-up) |
+[All Right Now](#all-right-now) |
+[Easy Lover](#easy-lover) |
+[Perfect Strangers](#perfect-strangers) |
+[Breaking All The Rules](#breaking-all-the-rules) |
+[Alive](#alive) |
+[Stand By Me](#stand-by-me) |
+[Synchronicity II](#synchronicity-ii) |
+[Hotel California](#hotel-california) |
+[Psycho Killer](#psycho-killer) |
+[Wish You Were Here](#wish-you-were-here) |
+[Aluga-se](#aluga-se) |
+[Agora Só Falta Você](#agora-só-falta-você) |
+[Malandragem](#malandragem) |
+[Blues da Piedade](#blues-da-piedade) |
+[Dream On](#dream-on) |
+[Heaven](#heaven) |
+[Amor](#amor) |
+[32 Dentes](#32-dentes) |
 [Fátima](#fátima)
 
 
 ### Come Together
-The Beatles
+#### The Beatles
 
 Shoot me, shoot me \
 Shoot me, shoot me
@@ -106,8 +106,7 @@ Come together, yeah
  
 
 ### Sunshine Of Your Love
-Cream
-
+####Cream
 
 It's getting near dawn \
 When lights close their tired eyes \
@@ -151,115 +150,107 @@ In the sunshine of your love
  
 
 ### Listen To The Music
-Doobie Brothers
+####Doobie Brothers
 
 Don't you feel it growin', day by day \
 People gettin' ready for the news \
 Some are happy, some are sad \
 Oh, we gotta let the music play
 
-What the people need
-Is a way to make 'em smile
-It ain't so hard to do if you know how
-Gotta get a message
-Get it on through
+What the people need \
+Is a way to make 'em smile \
+It ain't so hard to do if you know how \
+Gotta get a message \
+Get it on through \
 Oh, now mama don't you ask me why
 
-Oh, oh, listen to the music
-Oh, oh, listen to the music
-Oh, oh, listen to the music
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
 All the time
 
-Well I know, you know better
-Everything I say
-Meet me in the country for a day
-We'll be happy
-And we'll dance
+Well I know, you know better \
+Everything I say \
+Meet me in the country for a day \
+We'll be happy \
+And we'll dance \
 Oh, we're gonna dance our blues away
 
-And if I'm feelin' good to you
-And you're feelin' good to me
-There ain't nothin' we can't do or say
-Feelin' good, feeling fine
+And if I'm feelin' good to you \
+And you're feelin' good to me \
+There ain't nothin' we can't do or say \
+Feelin' good, feeling fine \
 Oh, baby, let the music play
 
-Oh, oh, listen to the music
-Oh, oh, listen to the music
-Oh, oh, listen to the music
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
 All the time
 
-
-Like a lazy flowing river
-Surrounding castles in the sky
-And the crowd is growing bigger
-List'nin' for the happy sounds
+Like a lazy flowing river \
+Surrounding castles in the sky \
+And the crowd is growing bigger \
+List'nin' for the happy sounds \
 And I have to let them fly
  
-
-Oh, oh, listen to the music
-Oh, oh, listen to the music
-Oh, oh, listen to the music
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
 All the time
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
 ### Behind Blue Eyes
-The Who
+####The Who
 
-
-No one knows what it's like
-To be the bad man
-To be the sad man
+No one knows what it's like \
+To be the bad man \
+To be the sad man \
 Behind blue eyes
  
-
-No one knows what it's like
-To be hated
-To be fated
+No one knows what it's like \
+To be hated \
+To be fated \ 
 To telling only lies
 
-But my dreams
-They aren't as empty
-As my conscience seems to be
-I have hours, only lonely
-My love is vengeance
+But my dreams \
+They aren't as empty \
+As my conscience seems to be \
+I have hours, only lonely \
+My love is vengeance \
 That's never free
 
-
-No one knows what it's like
-To feel these feelings
-Like I do
+No one knows what it's like \
+To feel these feelings \
+Like I do \
 And I blame you
 
-No one bites back as hard
-On their anger
-None of my pain and woe
+No one bites back as hard \
+On their anger \ 
+None of my pain and woe \
 Can show through
 
-
-But my dreams
-They aren't as empty
-As my conscience seems to be
-I have hours, only lonely
-My love is vengeance
+But my dreams \
+They aren't as empty \
+As my conscience seems to be \
+I have hours, only lonely \
+My love is vengeance \
 That's never free
 
+When my fist clenches, crack it open \
+Before I use it and lose my cool \ 
+When I smile, tell me some bad news \
+Before I laugh and act like a fool 
 
-When my fist clenches, crack it open
-Before I use it and lose my cool
-When I smile, tell me some bad news
-Before I laugh and act like a fool
-
-And if I swallow anything evil
-Put your finger down my throat
-And if I shiver, please give me a blanket
+And if I swallow anything evil \
+Put your finger down my throat \
+And if I shiver, please give me a blanket \
 Keep me warm, let me wear your coat
 
-
-No one knows what it's like
-To be the bad man
-To be the sad man
+No one knows what it's like \
+To be the bad man \
+To be the sad man \
 Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
