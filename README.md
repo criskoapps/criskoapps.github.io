@@ -10,6 +10,7 @@
 [Whiskey In The Jar](#whiskey-in-the-jar) |
 [Man in the Box](#man-in-the-box) |
 [Zombie](#zombie) |
+
 [What's Up?](#whats-up) |
 [All Right Now](#all-right-now) |
 [Easy Lover](#easy-lover) |
@@ -19,6 +20,7 @@
 [Stand By Me](#stand-by-me) |
 [Synchronicity II](#synchronicity-ii) |
 [Hotel California](#hotel-california) |
+
 [Psycho Killer](#psycho-killer) |
 [Wish You Were Here](#wish-you-were-here) |
 [Aluga-se](#aluga-se) |
@@ -32,8 +34,8 @@
 [Fátima](#fátima)
 
 
-### Come Together
-#### The Beatles
+### Come Together \
+The Beatles
 
 Shoot me, shoot me \
 Shoot me, shoot me
@@ -105,8 +107,8 @@ Come together, yeah
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Sunshine Of Your Love
-####Cream
+### Sunshine Of Your Love \
+Cream
 
 It's getting near dawn \
 When lights close their tired eyes \
@@ -149,8 +151,8 @@ In the sunshine of your love
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Listen To The Music
-####Doobie Brothers
+### Listen To The Music \
+Doobie Brothers
 
 Don't you feel it growin', day by day \
 People gettin' ready for the news \
@@ -201,8 +203,8 @@ All the time
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Behind Blue Eyes
-####The Who
+### Behind Blue Eyes \
+The Who
 
 No one knows what it's like \
 To be the bad man \
@@ -256,65 +258,61 @@ Behind blue eyes
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### I Hate Myself For Loving You
+### I Hate Myself For Loving You \
 Joan Jett & the Blackhearts
 
-
-Midnight gettin' uptight, where are you?
-You said you'd meet me, now it's quarter to two
-I know I'm hangin', but I'm still wantin' you
-Hey, Jack, it's a fact they're talkin' in town
-I turn my back, and you're messin' around
+Midnight gettin' uptight, where are you? \
+You said you'd meet me, now it's quarter to two \
+I know I'm hangin', but I'm still wantin' you \
+Hey, Jack, it's a fact they're talkin' in town \
+I turn my back, and you're messin' around \
 I'm not really jealous, don't like lookin' like a clown
 
-I think of you every night and day
+I think of you every night and day \
 You took my heart then you took my pride away
 
-I hate myself for loving you
-Can't break free from the the things that you do
-I wanna walk but I run back to you
+I hate myself for loving you \
+Can't break free from the the things that you do \
+I wanna walk but I run back to you \
 That's why I hate myself for loving you
 
-
-Daylight spent the night without you
-But I've been dreamin' 'bout the lovin' you do
+Daylight spent the night without you \
+But I've been dreamin' 'bout the lovin' you do \
 I'm over being angry 'bout the hell you put me through
 
-Hey man, bet you can treat me right
-You just don't know what you was missin' last night
+Hey man, bet you can treat me right \
+You just don't know what you was missin' last night \
 I wanna see you begging, say, "Forget it" just for spite
 
-
-I think of you every night and day
+I think of you every night and day \
 You took my heart and you took my pride away
 
-
-I hate myself for loving you
-Can't break free from the things that you do
-I wanna walk but I run back to you
-That's why I hate myself for loving you
+I hate myself for loving you \
+Can't break free from the things that you do \
+I wanna walk but I run back to you \
+That's why I hate myself for loving you \
 Ow, uh
 
-I think of you every night and day
+I think of you every night and day \
 You took my heart and you took my pride away
 
-I hate myself for loving you
-Can't break free from the things that you do
-I wanna walk but I run back to you 
+I hate myself for loving you \
+Can't break free from the things that you do \
+I wanna walk but I run back to you \
 That's why I hate myself for loving you
 
-I hate myself for loving you
-Can't break free from the things that you do
-I wanna walk but I run back to you 
+I hate myself for loving you \
+Can't break free from the things that you do \
+I wanna walk but I run back to you \
 That's why I hate myself for loving you
 
-I hate myself (ow, uh)
-For loving you (alright)
-I hate myself (ow, uh)
+I hate myself (ow, uh) \
+For loving you (alright) \
+I hate myself (ow, uh) \
 For loving you
 
-I hate myself (ow, ow, ow)
-For loving you
+I hate myself (ow, ow, ow) \
+For loving you \
 I hate myself (ow, uh)
 
 I hate myself for loving you
@@ -322,117 +320,103 @@ I hate myself for loving you
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Because The Night
+### Because The Night \
 Patti Smith
 
-
-Take me now, baby, here as I am
-Pull me close, try and understand
-Desire is hunger is the fire I breathe
+Take me now, baby, here as I am \
+Pull me close, try and understand \
+Desire is hunger is the fire I breathe \
 Love is a banquet on which we feed
 
-Come on now, try and understand
-The way I feel when I'm in your hand
-Take my hand, come undercover
-They can't hurt you now
+Come on now, try and understand \
+The way I feel when I'm in your hand \
+Take my hand, come undercover \
+They can't hurt you now \
 Can't hurt you now, can't hurt you now
 
- 
-Because the night belongs to lovers
-Because the night belongs to lust
-Because the night belongs to lovers
+Because the night belongs to lovers \
+Because the night belongs to lust \
+Because the night belongs to lovers \
 Because the night belongs to us
 
-
-Have I doubt when I am alone
-Love is a ring, the telephone
-Love is an angel disguised as lust
+Have I doubt when I am alone \
+Love is a ring, the telephone \
+Love is an angel disguised as lust \
 Here in our bed until the morning comes
 
-
-Come on now, try and understand
-The way I feel under your command
-Take my hands, as the sun descends
-They can't touch you now
+Come on now, try and understand \
+The way I feel under your command \
+Take my hands, as the sun descends \
+They can't touch you now \
 Can't touch you now, can't touch you now
 
-
-Because the night belongs to lovers
-Because the night belongs to lust
-Because the night belongs to lovers
+Because the night belongs to lovers \
+Because the night belongs to lust \
+Because the night belongs to lovers \
 Because the night belongs to us
 
-
-With love we sleep
-With doubt the vicious circle
-Turns and burns
-Without you I cannot live
-Forgive the yearning burning
-I believe it's time, too real to feel
-
+With love we sleep \
+With doubt the vicious circle \
+Turns and burns \
+Without you I cannot live \
+Forgive the yearning burning \
+I believe it's time, too real to feel \
 So touch me now, touch me now, touch me now
 
-Because the night belongs to lovers
-Because the night belongs to lust
-Because the night belongs to lovers
+Because the night belongs to lovers \
+Because the night belongs to lust \
+Because the night belongs to lovers \
 Because the night belongs to us
 
-Because tonight, there are two lovers
-If we believe in the night we trust
-Because the night belongs to lovers
+Because tonight, there are two lovers \
+If we believe in the night we trust \
+Because the night belongs to lovers \
 Because the night belongs to lust
 
-Because the night
-Belongs to lovers
-Because the night
+Because the night \
+Belongs to lovers \
+Because the night \
 Belongs to us
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Jumpin' Jack Flash
+### Jumpin' Jack Flash \
 The Rolling Stones
 
-
-I was born in a crossfire hurricane
-And I howled at my ma in the driving rain
-But it's all right, now, in fact it's a gas
-But it's all right, I'm Jumpin' Jack Flash
+I was born in a crossfire hurricane \
+And I howled at my ma in the driving rain \
+But it's all right, now, in fact it's a gas \
+But it's all right, I'm Jumpin' Jack Flash \
 It's a gas, gas, gas!
 
-I was raised by a toothless, bearded hag
-I was schooled with a strap right across my back
-But it's all right, now, in fact it's a gas
-But it's all right, I'm Jumpin' Jack Flash
+I was raised by a toothless, bearded hag \
+I was schooled with a strap right across my back \
+But it's all right, now, in fact it's a gas \
+But it's all right, I'm Jumpin' Jack Flash \
 It's a gas, gas, gas!
 
-I was drowned, I was washed up and left for dead
-I fell down to my feet and I saw they bled (yeah)
-Show them how to frown at the crumbs of a crust of bread (show them)
+I was drowned, I was washed up and left for dead \
+I fell down to my feet and I saw they bled (yeah) \
+Show them how to frown at the crumbs of a crust of bread (show them) \
 Yeah, I was crowned with a spike right through my head
 
-But it's all right, now, in fact it's a gas
-But it's all right, I'm Jumpin' Jack Flash
+But it's all right, now, in fact it's a gas \
+But it's all right, I'm Jumpin' Jack Flash \
 It's a gas, gas, gas!
 
+Jumpin' Jack Flash, it's a gas \
+Jumpin' Jack Flash, it's a gas \
+Jumpin' Jack Flash, it's a gas \
 Jumpin' Jack Flash, it's a gas
 
-Jumpin' Jack Flash, it's a gas
-
-Jumpin' Jack Flash, it's a gas
-
-Jumpin' Jack Flash, it's a gas
-
- 
-
-Jumpin' Jack Flash, it's a gas
-
+Jumpin' Jack Flash, it's a gas \
 Jumpin' Jack Flash, it's a gas
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Whiskey In The Jar
+### Whiskey In The Jar \
 Metallica
 
 
