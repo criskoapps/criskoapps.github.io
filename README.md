@@ -34,7 +34,7 @@
 [Fátima](#fátima)
 
 
-### Come Together \
+### Come Together 
 The Beatles
 
 Shoot me, shoot me \
@@ -107,7 +107,7 @@ Come together, yeah
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Sunshine Of Your Love \
+### Sunshine Of Your Love 
 Cream
 
 It's getting near dawn \
@@ -151,7 +151,7 @@ In the sunshine of your love
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Listen To The Music \
+### Listen To The Music 
 Doobie Brothers
 
 Don't you feel it growin', day by day \
@@ -203,7 +203,7 @@ All the time
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Behind Blue Eyes \
+### Behind Blue Eyes 
 The Who
 
 No one knows what it's like \
@@ -258,7 +258,7 @@ Behind blue eyes
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### I Hate Myself For Loving You \
+### I Hate Myself For Loving You 
 Joan Jett & the Blackhearts
 
 Midnight gettin' uptight, where are you? \
@@ -320,7 +320,7 @@ I hate myself for loving you
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Because The Night \
+### Because The Night 
 Patti Smith
 
 Take me now, baby, here as I am \
@@ -381,7 +381,7 @@ Belongs to us
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Jumpin' Jack Flash \
+### Jumpin' Jack Flash 
 The Rolling Stones
 
 I was born in a crossfire hurricane \
@@ -416,49 +416,48 @@ Jumpin' Jack Flash, it's a gas
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
-### Whiskey In The Jar \
+### Whiskey In The Jar 
 Metallica
 
-
-As I was goin' over the Cork and Kerry mountains
-I saw Captain Farrell and his money, he was countin'
-I first produced my pistol and then produced my rapier
+As I was goin' over the Cork and Kerry mountains \
+I saw Captain Farrell and his money, he was countin' \
+I first produced my pistol and then produced my rapier \
 I said: Stand and deliver, oh, or the devil, he may take ya
 
-I took all of his money and it was a pretty penny
-I took all of his money, yeah, and I brought it home to Molly
-She swore that she'd love me, no, never would she leave me
+I took all of his money and it was a pretty penny \
+I took all of his money, yeah, and I brought it home to Molly \
+She swore that she'd love me, no, never would she leave me \
 But the devil take that woman, yeah, for you know she tricked me easy
 
-Musha ring, dum-a-doo dum-a-da
-Whack for my daddy-o
-Whack for my daddy-o
+Musha ring, dum-a-doo dum-a-da \
+Whack for my daddy-o \
+Whack for my daddy-o \
 There's whiskey in the jar-o
 
-Being drunk and weary, I went to Molly's chamber
-Takin' money with me, but I never knew the danger
-For about six, or maybe seven, in walked Captain Farrell
+Being drunk and weary, I went to Molly's chamber \
+Takin' money with me, but I never knew the danger \
+For about six, or maybe seven, in walked Captain Farrell \
 I jumped up, fired my pistols and I shot him with both barrels
 
-Musha ring, dum-a-doo dum-a-da
-Whack for my daddy-o
-Whack for my daddy-o
-There's whiskey in the jar-o
+Musha ring, dum-a-doo dum-a-da \
+Whack for my daddy-o \
+Whack for my daddy-o \
+There's whiskey in the jar-o \
 Yeah, yeah, whiskey in the jar-o
 
-Now, some men like fishin' and some men like the fowlin'
-And some men like to hear, to hear the cannon ball a-roarin'
-Me, I like sleepin', especially in my Molly's chamber
+Now, some men like fishin' and some men like the fowlin' \
+And some men like to hear, to hear the cannon ball a-roarin' \
+Me, I like sleepin', especially in my Molly's chamber \
 But here I am, in prison, here I am with a ball and chain, yeah
 
-Musha ring, dum-a-doo dum-a-da
-Whack for my daddy-o
-Whack for my daddy-o
+Musha ring, dum-a-doo dum-a-da \
+Whack for my daddy-o \
+Whack for my daddy-o \
 There's whiskey in the jar-o
 
-Musha ring, dum-a-doo dum-a-da
-Musha ring, dum-a-doo dum-a-da
-Musha ring, dum-a-doo dum-a-da
+Musha ring, dum-a-doo dum-a-da \
+Musha ring, dum-a-doo dum-a-da \
+Musha ring, dum-a-doo dum-a-da \
 Musha ring, dum-a-doo dum-a-da
  
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -467,42 +466,41 @@ Musha ring, dum-a-doo dum-a-da
 ### Man in the Box
 Alice In Chains
 
-
-I'm the man in the box
-Buried in my shit
-Won't you come and save me?
+I'm the man in the box \
+Buried in my shit \
+Won't you come and save me? \
 Save me
 
-Feed my eyes
-(Can you sew them shut?)
-Jesus Christ
-(Deny your maker)
-He who tries
-(Will be wasted)
-Oh, feed my eyes
+Feed my eyes \
+(Can you sew them shut?) \
+Jesus Christ \
+(Deny your maker) \
+He who tries \
+(Will be wasted) \
+Oh, feed my eyes \
 (Now you've sewn them) shut
 
-I'm the dog who gets beat
-Shove my nose in shit
-Won't you come and save me?
+I'm the dog who gets beat \
+Shove my nose in shit \
+Won't you come and save me? \
 Save me
 
-Feed my eyes
-(Can you sew them shut?)
-Jesus Christ
-(Deny your maker)
-He who tries
-(Will be wasted)
-Oh, feed my eyes
+Feed my eyes \
+(Can you sew them shut?) \
+Jesus Christ \
+(Deny your maker) \
+He who tries \
+(Will be wasted) \
+Oh, feed my eyes \
 (Now you've sewn them) shut
 
-Feed my eyes
-(Can you sew them shut?)
-Jesus Christ
-(Deny your maker)
-He who tries
-(Will be wasted)
-Oh, feed my eyes
+Feed my eyes \
+(Can you sew them shut?) \
+Jesus Christ \
+(Deny your maker) \
+He who tries \
+(Will be wasted) \
+Oh, feed my eyes \
 (Now you've sewn them) shut
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -511,43 +509,42 @@ Oh, feed my eyes
 ### Zombie
 The Cranberries
 
-
-Another head hangs lowly
-Child is slowly taken
-And the violence caused such silence
+Another head hangs lowly \
+Child is slowly taken \
+And the violence caused such silence \
 Who are we mistaken?
 
-But you see, it's not me
-It's not my family
-In your head, in your head, they are fighting
-With their tanks and their bombs
-And their bombs, and their guns
+But you see, it's not me \
+It's not my family \
+In your head, in your head, they are fighting \
+With their tanks and their bombs \
+And their bombs, and their guns \
 In your head, in your head they are crying
 
-In your head, in your head
-Zombie, zombie, zombie-ie-ie
-What's in your head, in your head
+In your head, in your head \
+Zombie, zombie, zombie-ie-ie \
+What's in your head, in your head \
 Zombie, zombie, zombie-ie-ie-ie, oh
 
-Du, du, du, du
-Du, du, du, du
-Du, du, du, du
+Du, du, du, du \
+Du, du, du, du \
+Du, du, du, du \
 Du, du, du, du 
 
-Another mother's breaking heart is taking over
-When the violence causes silence
+Another mother's breaking heart is taking over \
+When the violence causes silence \
 We must be mistaken
 
-It's the same old theme
-Since nineteen-sixteen
-In your head, in your head, they're still fighting
-With their tanks and their bombs
-And their bombs, and their guns
+It's the same old theme \
+Since nineteen-sixteen \
+In your head, in your head, they're still fighting \
+With their tanks and their bombs \
+And their bombs, and their guns \
 In your head, in your head, they are dying
 
-In your head, in your head
-Zombie, zombie, zombie-ie-ie
-What's in your head, in your head
+In your head, in your head \
+Zombie, zombie, zombie-ie-ie \
+What's in your head, in your head \
 Zombie, zombie, zombie-ie-ie-ie
 
 Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
@@ -558,84 +555,83 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 ### What's Up?
 4 Non Blondes
 
-
-Twenty-five years
-And my life is still
-I'm trying to get up
-That great big hill of hope
+Twenty-five years \ 
+And my life is still \
+I'm trying to get up \
+That great big hill of hope \
 For a destination
 
-I realized quickly
-When I knew I should
-That the world was made up
-For this brotherhood of man
+I realized quickly \
+When I knew I should \
+That the world was made up \
+For this brotherhood of man \
 For whatever that means
 
-And so I cry sometimes
-When I'm lying in bed
-Just to get it all out
-What's in my head
-And I, I am feeling
+And so I cry sometimes \ 
+When I'm lying in bed \
+Just to get it all out \
+What's in my head \ 
+And I, I am feeling \
 A little peculiar
 
-And so I wake in the morning
-And thenn I step outside
-And I take a deep breath
-And I get real high
-And I
-Scream from the top of my lungs
+And so I wake in the morning \
+And thenn I step outside \
+And I take a deep breath \
+And I get real high \
+And I \
+Scream from the top of my lungs \
 What's going on?
 
-And I say, hey, yeah, yeah-eah
-Hey, yeah, yeah
+And I say, hey, yeah, yeah-eah \
+Hey, yeah, yeah \
 I said, hey! What's goin' on?
 
-And I sing, hey, yeah, yeah-eah
-Hey, yeah, yeah
+And I sing, hey, yeah, yeah-eah \
+Hey, yeah, yeah \
 I said, hey! What's going on?
 
-And I try, oh, my God, do I try
-I try all the time
+And I try, oh, my God, do I try \
+I try all the time \
 In this institution
 
-And I pray, oh, my God, do I pray
-I pray every single day
+And I pray, oh, my God, do I pray \
+I pray every single day \
 For a revolution
 
-And so I cry sometimes
-When I'm lying in bed
-Just to get it all out
-What's in my head
-And I, I am feeling
+And so I cry sometimes \
+When I'm lying in bed \
+Just to get it all out \
+What's in my head \
+And I, I am feeling \
 A little peculiar
 
-And so I wake in the morning
-And I step outside
-And I take deep breath
-And I get real high
-And I scream from the top of my lungs
+And so I wake in the morning \
+And I step outside \ 
+And I take deep breath \
+And I get real high \
+And I scream from the top of my lungs \
 What's going on?
 
-And I say, hey, yeah, yeah-eah
-Hey, yeah, yeah
+And I say, hey, yeah, yeah-eah \
+Hey, yeah, yeah \
 I said, hey! What's goin' on?
 
-And I sing, hey, yeah, yeah-eah
-Hey, yeah, yeah
+And I sing, hey, yeah, yeah-eah \
+Hey, yeah, yeah \
 I said, hey! What's going on?
 
-And I say, hey, yeah, yeah-eah
-Hey, yeah, yeah
+And I say, hey, yeah, yeah-eah \
+Hey, yeah, yeah \
 I said, hey! What's goin' on?
 
-And I sing, hey, yeah, yeah-eah
-Hey, yeah, yeah, yeah, yeah
+And I sing, hey, yeah, yeah-eah \
+Hey, yeah, yeah, yeah, yeah \
 I said, hey! What's going on?
 
-Twenty-five years
-And my life is still
-I'm trying to get up
-That great big hill of hope
+Twenty-five years \
+And my life is still \
+I'm trying to get up \
+That great big hill of hope \
 For a destination
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -644,141 +640,140 @@ For a destination
 ### All Right Now
 Free
 
-
 Whoa-oh-oh-oh-whoa
 
-
-There she stood in the street
-Smilin' from her head to her feet
-I said, "hey, what is this?
-Now baby", maybe,
-Maybe she's in need of a kiss
-I said, "hey, what's your name, baby?
-Maybe we can see things the same"
-Now don't you wait, or hesitate
+There she stood in the street \
+Smilin' from her head to her feet \
+I said, "hey, what is this? \
+Now baby", maybe, \
+Maybe she's in need of a kiss \
+I said, "hey, what's your name, baby? \
+Maybe we can see things the same" \ 
+Now don't you wait, or hesitate \
 Let's move before they raise the parking rate
 
-All right now, baby, it's all right now
-All right now, baby, it's all right now
+All right now, baby, it's all right now \
+All right now, baby, it's all right now \
 Let me tell you now
 
-I took her home to my place
-Watchin' every move on her face
-She said, "look, what's your game, baby?
+I took her home to my place \
+Watchin' every move on her face \
+She said, "look, what's your game, baby? \
 Are you tryin' to put me in shame?"
 
-I said, "slow, don't go so fast,
- don't you think that love can last?"
-She said, "Love, Lord above
-Now you're tryin' to trick me in love"
+I said, "slow, don't go so fast, \
+ don't you think that love can last?" \
+She said, "Love, Lord above \
+Now you're tryin' to trick me in love" \
 Ow!
 
-All right now, baby, it's all right now
-All right now, baby, it's all right now
+All right now, baby, it's all right now \
+All right now, baby, it's all right now \
 It's all right now
 
 Oh yeah, whoa
 
 Let me tell you all about it now, yeah
 
-I took her home to my place
-Watchin' every move on her face
-She said, "Look, what's your game?
+I took her home to my place \
+Watchin' every move on her face \
+She said, "Look, what's your game? \
 Are you tryin' to put me in shame?"
 
-I said, "Slow, don't go so fast,
- don't you think that love can last?"
-She said, "Love, Lord above
+I said, "Slow, don't go so fast, \
+ don't you think that love can last?" \
+She said, "Love, Lord above \
 Now you're tryin' to trick me in love"
 
-All right now, baby, it's all right now
-All right now, baby, it's all right now
-All right now, baby, it's all right now
+All right now, baby, it's all right now \
+All right now, baby, it's all right now \
+All right now, baby, it's all right now \
 All right now, baby, it's all right now
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
 ### Easy Lover 
-(feat. Philip Bayle)
+(feat. Philip Bayle) \
 Phil Collins
-
 
 Easy lover
 
-She'll get a hold on you believe it
-Like no other
-Before you know it you'll be on your knees
-She's an easy lover
-She'll take your heart but you won't feel it
-She's like no other
+She'll get a hold on you believe it \
+Like no other \
+Before you know it you'll be on your knees \
+She's an easy lover \
+She'll take your heart but you won't feel it \
+She's like no other \
 And I'm just trying to make you see
 
-She's the kind of girl you dream of
-Dream of keeping hold of
-You'd better forget it
-You'll never get it
-She will play around and leave you
-Leave you and deceive you
-Better forget it
+She's the kind of girl you dream of \
+Dream of keeping hold of \
+You'd better forget it \
+You'll never get it \
+She will play around and leave you \
+Leave you and deceive you \
+Better forget it \
 Oh you'll regret it
 
-No you'll never change her, so leave it, leave it
-Get out quick cos seeing is believing
-It's the only way
+No you'll never change her, so leave it, leave it \
+Get out quick cos seeing is believing \
+It's the only way \
 You'll ever know
 
-She's an easy lover
-She'll get a hold on you believe it
-Like no other
-Before you know it you'll be on your knees
-She's an easy lover
-She'll take your heart but you won't feel it
-She's like no other
+She's an easy lover \
+She'll get a hold on you believe it \
+Like no other \
+Before you know it you'll be on your knees \
+She's an easy lover \
+She'll take your heart but you won't feel it \
+She's like no other \
 And I'm just trying to make you see
 
-You're the one that wants to hold her
-Hold her and control her
-You'd better forget it
-You'll never get it
-For she'll say there's no other
-Till she finds another
-Better forget it
+You're the one that wants to hold her \
+Hold her and control her \
+You'd better forget it \
+You'll never get it \
+For she'll say there's no other \
+Till she finds another \ 
+Better forget it \
 Oh you'll regret it
 
-And don't try to change her, just leave it, leave it
-You're not the only one, ooh seeing is believing
-It's the only way
+And don't try to change her, just leave it, leave it \
+You're not the only one, ooh seeing is believing \
+It's the only way \
 You'll ever know, oh
 
-No don't try to change her, just leave it, leave it
-You're not the only one, ooh seeing is believing
-It's the only way
+No don't try to change her, just leave it, leave it \
+You're not the only one, ooh seeing is believing \
+It's the only way \
 You'll ever know, oh
 
-She's an easy lover (she's a easy lover)
-She'll get a hold on you believe it (get a hold on you)
-(She's) like no other
-Before you know it you'll be on your knees (you'll be down onyour knees)
+She's an easy lover (she's a easy lover) \
+She'll get a hold on you believe it (get a hold on you) \
+(She's) like no other \
+Before you know it you'll be on your knees  \ (you'll be down onyour knees)
 
-She's an easy lover
-She'll take your heart but you won't feel it (you won't feel it)
-She's like no other
-And I'm just trying to make you see (trying to make you see)
+She's an easy lover \
+She'll take your heart but you won't feel it \ (you won't feel it) \
+She's like no other \
+And I'm just trying to make you see \
+(trying to make you see)
 
-She's an easy lover (she's a easy lover)
-She'll get a hold on you believe it (get a hold on you)
-(She's) like no other
-Before you know it you'll be on your knees (you'll be down onyour knees)
-She's an easy lover
-She'll take your heart but you won't feel it (you won't feel it)
-She's like no other
-And I'm just trying to make you see (trying to make you see)
+She's an easy lover (she's a easy lover) \
+She'll get a hold on you believe it (get a hold on you) \
+(She's) like no other \
+Before you know it you'll be on your knees \ (you'll be down on your knees) \
+She's an easy lover \
+She'll take your heart but you won't feel it \ (you won't feel it) \
+She's like no other \
+And I'm just trying to make you see \ (trying to make you see)
 
-She's an easy lover (she's a easy lover)
-She'll get a hold on you believe it (get a hold on you)
-(She's) like no other
-Before you know it you'll be on your knees (you'll be down onyour knees)
+She's an easy lover (she's a easy lover) \
+She'll get a hold on you believe it \
+(get a hold on you) \
+(She's) like no other \
+Before you know it you'll be on your knees \(you'll be down onyour knees)
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
@@ -786,35 +781,35 @@ Before you know it you'll be on your knees (you'll be down onyour knees)
 ### Perfect Strangers
 Deep Purple
 
+Can you remember, remember my name? \
+As I flow through your life \ 
+A thousand oceans I have flown \
+And cold, cold spirits of ice \
+All my life, I am the echo of your past \
+(echo of your past)
 
-Can you remember, remember my name?
-As I flow through your life
-A thousand oceans I have flown
-And cold, cold spirits of ice
-All my life, I am the echo of your past (echo of your past)
-
-I am returning, the echo of a point in time
-Distant faces shine
-A thousand warriors I have known
-Oh, and laughing, as the spirits appear
+I am returning, the echo of a point in time \
+Distant faces shine \
+A thousand warriors I have known \
+Oh, and laughing, as the spirits appear \
 All, all your life, shadows of another day
 
-And if you hear me talking on the wind
-You've got to understand
+And if you hear me talking on the wind \
+You've got to understand \
 We must remain perfect strangers
 
-(I know)
+(I know) \
 I know I must remain inside this silent well of sorrow
 
-A strand of silver, hanging through the sky
-Touching more than you see
-The voice of ages in your mind
-Oh, is aching, with the dead of the night
-Oh oh, precious life
+A strand of silver, hanging through the sky \
+Touching more than you see \
+The voice of ages in your mind \
+Oh, is aching, with the dead of the night \
+Oh oh, precious life \
 Your tears are lost in falling rain
 
-And if you hear me talking on the wind
-You've got to understand
+And if you hear me talking on the wind \
+You've got to understand \
 We must remain perfect strangers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -823,35 +818,34 @@ We must remain perfect strangers
 ### Breaking All The Rules
 Peter Frampton
 
-
-We are the people one and all
-From deliverance to the fall
-From the battle and the heat
+We are the people one and all \
+From deliverance to the fall \
+From the battle and the heat \
 To our triumph and defeat
 
-We are the young ones crying out
-Full of anger, full of doubt
-And we're breaking all of the rules
+We are the young ones crying out \
+Full of anger, full of doubt \
+And we're breaking all of the rules \
 Never choosing to be fools
 
-We are tired of being used
-We are constantly excused
-In the battle and the heat
+We are tired of being used \
+We are constantly excused \
+In the battle and the heat \
 In the shadow of retreat
 
-We are the young ones crying out
-Full of anger, full of doubt
-And we're breaking all of the rules
+We are the young ones crying out \
+Full of anger, full of doubt \
+And we're breaking all of the rules \
 Never choosing to be fools
 
-We are the people one and all
-From deliverance to the fall
-From the bitter to the brave
+We are the people one and all \
+From deliverance to the fall \
+From the bitter to the brave \
 From the cradle to the grave
 
-We are the young ones crying out
-Full of anger, full of doubt
-And we're breaking all of the rules
+We are the young ones crying out \
+Full of anger, full of doubt \
+And we're breaking all of the rules \
 Never choosing to be fools
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -860,44 +854,45 @@ Never choosing to be fools
 ### Alive
 Pearl Jam
  
-
-Son, she said, have I got a little story for you
-What you thought was your daddy was nothing but a–
-While you were sittin' home alone at age thirteen
-Your real daddy was dyin'
+Son, she said, have I got a little story for you \
+What you thought was your daddy was nothing but a– \
+While you were sittin' home alone at age thirteen \
+Your real daddy was dyin' \
 Sorry you didn't see him, but I'm glad we talked
 
-Oh, I, oh I'm still alive
-Hey, I, oh I'm still alive
-Hey, I, oh I'm still alive
+Oh, I, oh I'm still alive \
+Hey, I, oh I'm still alive \
+Hey, I, oh I'm still alive \
 Hey, oh
 
-While she walks slowly across a young man's room
-She said, I'm ready for you
-Why I can't remember anything to this very day
-'Cept the look, the look
-Oh, you know where, now I can't see I just stare
+While she walks slowly across a young man's room \
+She said, I'm ready for you \
+Why I can't remember anything to this very day \
+'Cept the look, the look \
+Oh, you know where, now I can't see \
+I just stare
 
-I, I'm still alive
-Hey, I, oh, I'm still alive
-Hey, I, oh, I'm still alive
-Hey, I, oh, I'm still alive, yeah
+I, I'm still alive \
+Hey, I, oh, I'm still alive \
+Hey, I, oh, I'm still alive \
+Hey, I, oh, I'm still alive, yeah \
 Ooh yeah, yeah, yeah, yeah, oh, ooh
 
-Is something wrong, she said, of course there is
-You're still alive, she said, oh, and do I deserve to be?
-Is that the question?
-And if so, if so who answers?
+Is something wrong, she said, of course there is \
+You're still alive, she said, \
+oh, and do I deserve to be? \
+Is that the question? \
+And if so, if so who answers? \
 Who answers?
 
-I, oh I'm still alive
-Hey, I, oh I'm still alive
-Yeah, I, oh I'm still alive
-Yeah, I
-Ooh, I'm still alive!
+I, oh I'm still alive \
+Hey, I, oh I'm still alive \
+Yeah, I, oh I'm still alive \
+Yeah, I \
+Ooh, I'm still alive! \
 Yeah yeah yeah yeah yeah yeah yeah!
 
-Ooh yeah, ooh ooh
+Ooh yeah, ooh ooh \
 Ooh yeah, yeah yeah yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -905,44 +900,43 @@ Ooh yeah, yeah yeah yeah
 
 ### Stand By Me
 Ben E. King
- 
 
-When the night has come
-And the land is dark
-And the Moon is the only light we'll see
-No, I won't be afraid
-Oh, I won't be afraid
+When the night has come \
+And the land is dark \
+And the Moon is the only light we'll see \
+No, I won't be afraid \
+Oh, I won't be afraid \
 Just as long as you stand, stand by me
 
-So, darlin', darlin', stand by me
-Oh, stand by me
-Oh, stand
-Stand by me
+So, darlin', darlin', stand by me \
+Oh, stand by me \
+Oh, stand \
+Stand by me \
 Stand by me
 
-If the sky that we look upon
-Should tumble and fall
-Or the mountains should crumble to the sea
-I won't cry, I won't cry
-No, I won't shed a tear
+If the sky that we look upon \
+Should tumble and fall \
+Or the mountains should crumble to the sea \
+I won't cry, I won't cry \
+No, I won't shed a tear \
 Just as long as you stand, stand by me
 
-And, darlin', darlin', stand by me
-Oh, stand by me
-Whoa, stand now
-Stand by me
-Stand by me
-
-Darlin', darlin', stand by me
-Oh, stand by me
-Oh, stand now
-Stand by me
+And, darlin', darlin', stand by me \
+Oh, stand by me \
+Whoa, stand now \
+Stand by me \
 Stand by me
 
-Whenever you're in trouble, won't you stand by me?
-Oh, stand by me
-Wow, just stand now
-Oh, stand
+Darlin', darlin', stand by me \
+Oh, stand by me \
+Oh, stand now \
+Stand by me \
+Stand by me
+
+Whenever you're in trouble, won't you stand by me? \
+Oh, stand by me \
+Wow, just stand now \
+Oh, stand \
 Stand by me
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -951,48 +945,47 @@ Stand by me
 ### Synchronicity II
 The Police
 
-
-Another suburban family morning
-Grandmother screaming at the wall
-We have to shout above the din of our Rice Crispies
-We can't hear anything at all
-Mother chants her litany of boredom and frustration
-But we know all her suicides are fake
-Daddy only stares into the distance
+Another suburban family morning \
+Grandmother screaming at the wall \
+We have to shout above the din of our Rice Crispies \
+We can't hear anything at all \
+Mother chants her litany of boredom and frustration \
+But we know all her suicides are fake \
+Daddy only stares into the distance \
 There's only so much more that he can take
 
-Many miles away
-Something crawls from the slime
+Many miles away \
+Something crawls from the slime \
 At the bottom of a dark Scottish lake
 
-Another industrial ugly morning
-The factory belches filth into the sky
-He walks unhindered through the picket lines today
+Another industrial ugly morning \
+The factory belches filth into the sky \
+He walks unhindered through the picket lines today \
 He doesn't think to wonder why
 
-The secretaries pout and preen like
-cheap tarts in a red light street
-But all he ever thinks to do is watch
-And every single meeting with his so-called superior
+The secretaries pout and preen like \
+cheap tarts in a red light street \
+But all he ever thinks to do is watch \
+And every single meeting with his so-called superior \
 Is a humiliating kick in the crotch
 
-Many miles away
-Something crawls to the surface
+Many miles away \
+Something crawls to the surface \
 Of a dark Scottish loch
 
-Another working day has ended
-Only the rush hour hell to face
-Packed like lemmings into shiny metal boxes
+Another working day has ended \
+Only the rush hour hell to face \
+Packed like lemmings into shiny metal boxes \
 Contestants in a suicidal race
 
-Daddy grips the wheel and stares alone into the distance
-He knows that something somewhere has to break
-He sees the family home now looming in the headlights
+Daddy grips the wheel and stares alone into the distance \
+He knows that something somewhere has to break \
+He sees the family home now looming in the headlights \
 The pain upstairs that makes his eyeballs ache
 
-Many miles away
-There's a shadow on the door
-Of a cottage on the shore
+Many miles away \
+There's a shadow on the door \
+Of a cottage on the shore \
 Of a dark Scottish lake
 
 Many miles away, many miles away
@@ -1003,131 +996,129 @@ Many miles away, many miles away
 ### Hotel California
 Eagles
 
-
-On a dark desert highway
-Cool wind in my hair
-Warm smell of colitas
-Rising up through the air
-Up ahead, in the distance
-I saw a shimmering light
-My head grew heavy and my sight grew dim
+On a dark desert highway \
+Cool wind in my hair \
+Warm smell of colitas \
+Rising up through the air \
+Up ahead, in the distance \
+I saw a shimmering light \
+My head grew heavy and my sight grew dim \
 I had to stop for the night
 
-There she stood, in the doorway
-I heard the Mission bell
-And I was thinking to myself
-This could be heaven or this could be hell
-Then she lit up a candle and she showed me the way
-There were voices down the corridor
+There she stood, in the doorway \
+I heard the Mission bell \
+And I was thinking to myself \
+This could be heaven or this could be hell \
+Then she lit up a candle and she showed me the way \
+There were voices down the corridor \
 I thought I heard them say
 
-Welcome to the Hotel California
-Such a lovely place
-(Such a lovely place)
+Welcome to the Hotel California \
+Such a lovely place \
+(Such a lovely place) \
 Such a lovely face
 
-Plenty of room at the Hotel California
-Any time of year
-(Any time of year)
+Plenty of room at the Hotel California \
+Any time of year \
+(Any time of year) \
 You can find it here
 
-Her mind is Tiffany-twisted
-She got the Mercedes-Benz
-She got a lot of pretty, pretty boys
+Her mind is Tiffany-twisted \
+She got the Mercedes-Benz \
+She got a lot of pretty, pretty boys \
 That she calls friends
 
-How they dance in the courtyard
-Sweet summer sweat
-Some dance to remember
+How they dance in the courtyard \
+Sweet summer sweat \
+Some dance to remember \
 Some dance to forget
 
-So I called up the captain
-Please, bring me my wine
-He said: We haven't had that spirit here since
+So I called up the captain \
+Please, bring me my wine \
+He said: We haven't had that spirit here since \
 Nineteen sixty-nine
 
-And, still, those voices are calling from far away
-Wake you up in the middle of the night
+And, still, those voices are calling from far away \
+Wake you up in the middle of the night \
 Just to hear them say
 
-Welcome to the Hotel California
-Such a lovely place
-(Such a lovely place)
+Welcome to the Hotel California \
+Such a lovely place \
+(Such a lovely place) \
 Such a lovely face
 
-They're livin' it up at the Hotel California
-What a nice surprise
-(What a nice surprise)
+They're livin' it up at the Hotel California \
+What a nice surprise \
+(What a nice surprise) \
 Bring your alibis
 
-Mirrors on the ceiling
-The pink champagne on ice
-And she said: We are all just prisoners here
-Of our own device
-And in the master's chambers
-They gathered for the feast
-They stab it with their steely knives
+Mirrors on the ceiling \
+The pink champagne on ice \
+And she said: We are all just prisoners here \
+Of our own device \
+And in the master's chambers \
+They gathered for the feast \
+They stab it with their steely knives \
 But they just can't kill the beast
 
-Last thing I remember
-I was running for the door
-I had to find the passage back
-To the place I was before
-Relax, said the night man
-We are programmed to receive
-You can check out any time you like
+Last thing I remember \
+I was running for the door \
+I had to find the passage back \
+To the place I was before \
+Relax, said the night man \
+We are programmed to receive \
+You can check out any time you like \
 But you can never leave
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
 
-
 ### Psycho Killer
 Talking Heads
 
-I can't seem to face up to the facts
-I'm tense and nervous and I can't relax
-I can't sleep 'cause my bed's on fire
+I can't seem to face up to the facts \
+I'm tense and nervous and I can't relax \
+I can't sleep 'cause my bed's on fire \
 Don't touch me, I'm a real live wire
 
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
-Oh, oh, oh
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
+Oh, oh, oh \
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
 Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
-You start a conversation, you can't even finish it
-You're talking a lot, but you're not saying anything
-When I have nothing to say, my lips are sealed
+You start a conversation, you can't even finish it \
+You're talking a lot, but you're not saying anything \
+When I have nothing to say, my lips are sealed \
 Say something once, why say it again?
 
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
-Oh, oh, oh
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
+Oh, oh, oh \
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
 Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
-Ce que j'ai fait, ce soir-là
-Ce qu'elle a dit, ce soir-là
-Réalisant mon espoir
-Je me lance, vers la gloire, okay
-Aye-ya-ya-ya-ya-ya-ya-ya-ya-ya-ya
-We are vain and we are blind
+Ce que j'ai fait, ce soir-là \
+Ce qu'elle a dit, ce soir-là \
+Réalisant mon espoir \
+Je me lance, vers la gloire, okay \
+Aye-ya-ya-ya-ya-ya-ya-ya-ya-ya-ya \
+We are vain and we are blind \
 I hate people when they're not polite
 
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
-Oh, oh, oh
-Psycho killer, qu'est-ce que c'est?
-Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better
-Run, run, run, run, run, run, run away
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
+Oh, oh, oh \
+Psycho killer, qu'est-ce que c'est? \
+Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
+Run, run, run, run, run, run, run away \
 Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1135,30 +1126,30 @@ Oh, oh, oh, oh, aye-ya-ya-ya-ya
 ### Wish You Were Here
 Pink Floyd
 
-So, so you think you can tell
-Heaven from hell?
-Blue skies from pain?
-Can you tell a green field
-From a cold steel rail?
-A smile from a veil?
+So, so you think you can tell \
+Heaven from hell? \
+Blue skies from pain? \
+Can you tell a green field \
+From a cold steel rail? \
+A smile from a veil? \
 Do you think you can tell?
 
-Did they get you to trade
-Your heroes for ghosts?
-Hot ashes for trees?
-Hot air for a cool breeze?
-Cold comfort for change?
-Did you exchange
-A walk on part in the war
+Did they get you to trade \
+Your heroes for ghosts? \
+Hot ashes for trees? \
+Hot air for a cool breeze? \
+Cold comfort for change? \
+Did you exchange \
+A walk on part in the war \
 For a lead role in a cage?
 
-How I wish
-How I wish you were here
-We're just two lost souls
-Swimming in a fish bowl year after year
-Running over the same old ground
-What have we found?
-The same old fears
+How I wish \
+How I wish you were here \
+We're just two lost souls \
+Swimming in a fish bowl year after year \
+Running over the same old ground \
+What have we found? \
+The same old fears \
 Wish you were here
 
 (fazer vocalize no lugar do teclado)
@@ -1169,68 +1160,68 @@ Wish you were here
 ### Aluga-se
 Raul Seixas
 
-A solução pro nosso povo eu vou dá
-Negócio bom assim ninguém nunca viu
-Tá tudo pronto aqui, é só vim pegar
+A solução pro nosso povo eu vou dá \
+Negócio bom assim ninguém nunca viu \
+Tá tudo pronto aqui, é só vim pegar \
 A solução é alugar o Brasil!
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-É tudo free!
-Tá na hora, agora é free
-Vamo embora dá lugar pros gringo entrar
-Esse imóvel tá pra alugar
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+É tudo free! \
+Tá na hora, agora é free \
+Vamo embora dá lugar pros gringo entrar \
+Esse imóvel tá pra alugar \
 Ah! Ah! Ah! Ah! Ah! Ah!
 
-Os estrangeiros, eu sei que eles vão gostar
-Tem o Atlântico, tem vista pro mar
-A Amazônia é o jardim do quintal
+Os estrangeiros, eu sei que eles vão gostar \
+Tem o Atlântico, tem vista pro mar \
+A Amazônia é o jardim do quintal \
 E o dólar deles paga o nosso mingau
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-É tudo free!
-Tá na hora agora é free
-Vamo embora dá lugar pros gringo entrar
-Pois esse imóvel está pra alugar
-Alugar! Ei!
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+É tudo free! \
+Tá na hora agora é free \
+Vamo embora dá lugar pros gringo entrar \
+Pois esse imóvel está pra alugar \
+Alugar! Ei! \
 Grande solução!
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-Agora é free!
-Tá na hora, é tudo free
-Vamo embora dá lugar pros outro entrar
-Pois esse imóvel tá pra alugar
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+Agora é free! \
+Tá na hora, é tudo free \
+Vamo embora dá lugar pros outro entrar \
+Pois esse imóvel tá pra alugar \
 Ah! Ah! Ah! Ah!
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-Agora é free!
-Tá na hora é tudo free
-Vamo embora dá lugar pros gringo entrar
-Pois esse imóvel
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+Agora é free! \
+Tá na hora é tudo free \
+Vamo embora dá lugar pros gringo entrar \
+Pois esse imóvel \
 Está pra alugar
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-Agora é free!
-Tá na hora, é tudo free
-Vamo embora dá lugar pros outro entrar
-Pois esse imóvel tá pra alugar
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+Agora é free! \
+Tá na hora, é tudo free \
+Vamo embora dá lugar pros outro entrar \
+Pois esse imóvel tá pra alugar \
 Ah! Ah! Ah! Ah!
 
-Nós não vamo paga nada
-Nós não vamo paga nada
-Agora é free!
-Tá na hora é tudo free
-Vamo embora dá lugar pros gringo entrar
-Pois esse imóvel
+Nós não vamo paga nada \
+Nós não vamo paga nada \
+Agora é free! \
+Tá na hora é tudo free \
+Vamo embora dá lugar pros gringo entrar \
+Pois esse imóvel \
 Está pra alugar
 
-Nós não vamo paga nada!
-Nós não vamo paga nada!
-Nós não vamo paga nada!
+Nós não vamo paga nada! \
+Nós não vamo paga nada! \
+Nós não vamo paga nada! \
 Nós não vamo paga nada!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1239,48 +1230,48 @@ Nós não vamo paga nada!
 ### Agora Só Falta Você
 Rita Lee
 
-Um belo dia resolvi mudar
-E fazer tudo o que eu queria fazer
-Me libertei daquela vida vulgar
-Que eu levava estando junto a você
-E em tudo que eu faço
-Existe um porquê
-Eu sei que eu nasci
+Um belo dia resolvi mudar \
+E fazer tudo o que eu queria fazer \
+Me libertei daquela vida vulgar \
+Que eu levava estando junto a você \
+E em tudo que eu faço \
+Existe um porquê \
+Eu sei que eu nasci \
 Sei que eu nasci pra saber
 
-E fui andando sem pensar em voltar
-E sem ligar pro que me aconteceu
-Um belo dia vou lhe telefonar
-Pra lhe dizer que aquele sonho cresceu
-No ar que eu respiro
-Eu sinto prazer
-De ser quem eu sou
-De estar onde estou
+E fui andando sem pensar em voltar \
+E sem ligar pro que me aconteceu \
+Um belo dia vou lhe telefonar \
+Pra lhe dizer que aquele sonho cresceu \
+No ar que eu respiro \
+Eu sinto prazer \
+De ser quem eu sou \ 
+De estar onde estou \
 Agora só falta você
 
 (Solo - instrumental da 2a parte)
 
-Um belo dia resolvi mudar
-E fazer tudo o que eu queria fazer
-Me libertei daquela vida vulgar
-Que eu levava estando junto a você
-E em tudo que eu faço
-Existe um porquê
-Eu sei que eu nasci
-Sei que eu nasci pra saber
-Saber o que
-E fui andando sem pensar em voltar
-E sem ligar pro que me aconteceu
-Um belo dia vou lhe telefonar
-Pra lhe dizer que aquele sonho cresceu
-No ar que eu respiro
-Eu sinto prazer
-De ser quem eu sou
+Um belo dia resolvi mudar \
+E fazer tudo o que eu queria fazer \
+Me libertei daquela vida vulgar \
+Que eu levava estando junto a você \
+E em tudo que eu faço \
+Existe um porquê \
+Eu sei que eu nasci \
+Sei que eu nasci pra saber \
+Saber o que \
+E fui andando sem pensar em voltar \
+E sem ligar pro que me aconteceu \
+Um belo dia vou lhe telefonar \
+Pra lhe dizer que aquele sonho cresceu \
+No ar que eu respiro \
+Eu sinto prazer \
+De ser quem eu sou \
 De estar onde estou
 
-Agora só falta você
-Agora só falta você
-Agora só falta você
+Agora só falta você \
+Agora só falta você \
+Agora só falta você \
 Agora só falta você
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1289,52 +1280,52 @@ Agora só falta você
 ### Malandragem
 Cássia Eller
 
-Quem sabe eu ainda sou uma garotinha
-Esperando o ônibus da escola, sozinha
-Cansada com minhas meias três quartos
-Rezando baixo pelos cantos
+Quem sabe eu ainda sou uma garotinha \
+Esperando o ônibus da escola, sozinha \
+Cansada com minhas meias três quartos \
+Rezando baixo pelos cantos \
 Por ser uma menina má
 
-Quem sabe o príncipe virou um chato
-Que vive dando no meu saco
+Quem sabe o príncipe virou um chato \
+Que vive dando no meu saco \
 Quem sabe a vida é não sonhar
 
-Eu só peço a Deus
-Um pouco de malandragem
-Pois sou criança
-E não conheço a verdade
-Eu sou poeta e não aprendi a amar
+Eu só peço a Deus \
+Um pouco de malandragem \
+Pois sou criança \
+E não conheço a verdade \
+Eu sou poeta e não aprendi a amar \
 Eu sou poeta e não aprendi a amar
 
-Bobeira é não viver a realidade
-E eu ainda tenho uma tarde inteira
-Eu ando nas ruas
-Eu troco um cheque
-Mudo uma planta de lugar
-Dirijo meu carro
-Tomo o meu pileque
+Bobeira é não viver a realidade \
+E eu ainda tenho uma tarde inteira \
+Eu ando nas ruas \
+Eu troco um cheque \
+Mudo uma planta de lugar \
+Dirijo meu carro \
+Tomo o meu pileque \
 E ainda tenho tempo pra cantar
 
-Eu só peço a Deus
-Um pouco de malandragem
-Pois sou criança
-E não conheço a verdade
-Eu sou poeta e não aprendi a amar
+Eu só peço a Deus \
+Um pouco de malandragem \
+Pois sou criança \
+E não conheço a verdade \
+Eu sou poeta e não aprendi a amar \
 Eu sou poeta e não aprendi a amar
 
-Eu ando nas ruas
-Eu troco um cheque
-Mudo uma planta de lugar
-Dirijo meu carro
-Tomo o meu pileque
+Eu ando nas ruas \
+Eu troco um cheque \
+Mudo uma planta de lugar \
+Dirijo meu carro \
+Tomo o meu pileque \
 E ainda tenho tempo pra cantar
 
-Eu só peço a Deus
-Um pouco de malandragem
-Pois sou criança
-E não conheço a verdade
-Eu sou poeta e não aprendi a amar
-Eu sou poeta e não aprendi a amar
+Eu só peço a Deus \
+Um pouco de malandragem \
+Pois sou criança \
+E não conheço a verdade \
+Eu sou poeta e não aprendi a amar \
+Eu sou poeta e não aprendi a amar \
 (Repete 3x)
 
 Quem sabe eu ainda sou uma garotinha!
@@ -1345,60 +1336,60 @@ Quem sabe eu ainda sou uma garotinha!
 ### Blues da Piedade
 Cazuza
 
-Agora eu vou cantar pros miseráveis
-Que vagam pelo mundo derrotados
-Pra essas sementes mal plantadas
-Que já nascem com cara de abortadas
-Pras pessoas de alma bem pequena
-Remoendo pequenos problemas
+Agora eu vou cantar pros miseráveis \
+Que vagam pelo mundo derrotados \
+Pra essas sementes mal plantadas \
+Que já nascem com cara de abortadas \
+Pras pessoas de alma bem pequena \
+Remoendo pequenos problemas \
 Querendo sempre aquilo que não têm
 
-Pra quem vê a luz
-Mas não ilumina suas minicertezas
-Vive contando dinheiro
-E não muda quando é Lua cheia
-Pra quem não sabe amar
-Fica esperando
-Alguém que caiba no seu sonho
-Como varizes que vão aumentando
+Pra quem vê a luz \
+Mas não ilumina suas minicertezas \
+Vive contando dinheiro \
+E não muda quando é Lua cheia \
+Pra quem não sabe amar \
+Fica esperando \
+Alguém que caiba no seu sonho \
+Como varizes que vão aumentando \
 Como insetos em volta da lâmpada
 
-Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
-Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
-Pra essa gente careta e covarde (ah)
-Vamos pedir piedade
-Senhor, piedade  (Senhor! Piedade!)
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh) \
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh) \
+Pra essa gente careta e covarde (ah) \
+Vamos pedir piedade \
+Senhor, piedade  (Senhor! Piedade!) \
 Lhes dê grandeza e um pouco de coragem
 
-Quero cantar só pras pessoas fracas
-Que tão no mundo e perderam a viagem
-Quero cantar o blues
-Com o pastor e o bumbo na praça
-Vamos pedir piedade
-Pois há um incêndio sob a chuva rala
-Somos iguais em desgraça
+Quero cantar só pras pessoas fracas \
+Que tão no mundo e perderam a viagem \
+Quero cantar o blues \
+Com o pastor e o bumbo na praça \
+Vamos pedir piedade \
+Pois há um incêndio sob a chuva rala \
+Somos iguais em desgraça \
 Vamos cantar o blues da piedade
 
-Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
-Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
-Pra essa gente careta e covarde (ah)
-Vamos pedir piedade
-Senhor, piedade  (Senhor! Piedade!)
-Lhes dê grandeza e um pouco de coragem
-Pra quem não sabe amar
-Fica esperando
-Alguém que caiba no seu sonho
-Como varizes que vão aumentando
-Como insetos em volta da lâmpada
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh) \
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh) \
+Pra essa gente careta e covarde (ah) \
+Vamos pedir piedade \
+Senhor, piedade  (Senhor! Piedade!) \
+Lhes dê grandeza e um pouco de coragem \
+Pra quem não sabe amar \
+Fica esperando \
+Alguém que caiba no seu sonho \
+Como varizes que vão aumentando \
+Como insetos em volta da lâmpada 
 
-Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh)
-Senhor, piedade (Ahhhh ahh ah ah ah ahhh)
-Pra essa gente careta e covarde (ah)
-Vamos pedir piedade
-Senhor, piedade  (Senhor! Piedade!)
+Vamos pedir piedade (Ahhhh ahh ah ah ah ahhh) \
+Senhor, piedade (Ahhhh ahh ah ah ah ahhh) \
+Pra essa gente careta e covarde (ah) \
+Vamos pedir piedade \
+Senhor, piedade  (Senhor! Piedade!) \
 Lhes dê um pouco de coragem
 
-Ah, ah, um pouco de coragem
+Ah, ah, um pouco de coragem \
 Ah, ah, lhes dê grandeza e um pouco de coragem
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1407,49 +1398,49 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 ### Dream On
 Aerosmith
 
-Every time that I look in the mirror
-All these lines on my face getting clearer
-The past is gone
-It went by like dusk to dawn
-Isn't that the way?
+Every time that I look in the mirror \
+All these lines on my face getting clearer \
+The past is gone \
+It went by like dusk to dawn \
+Isn't that the way? \
 Everybody's got the dues in life to pay, yeah
 
-I know nobody knows
-Where it comes and where it goes
-I know it's everybody's sin
+I know nobody knows \
+Where it comes and where it goes \
+I know it's everybody's sin \
 You've got to lose to know how to win
 
-Half my life's in books' written pages
-Live and learn from fools and from sages
-You know it's true, oh
+Half my life's in books' written pages \
+Live and learn from fools and from sages \
+You know it's true, oh \
 All the things come back to you
 
-Sing with me, sing for the year
-Sing for the laughter and sing for the tear
-Sing with me, if it's just for today
+Sing with me, sing for the year \
+Sing for the laughter and sing for the tear \
+Sing with me, if it's just for today \
 Maybe tomorrow the good Lord will take you away
 
-Yeah, sing with me, sing for the year
-Sing for the laughter and sing for the tear
-Sing with me, if it's just for today
+Yeah, sing with me, sing for the year \
+Sing for the laughter and sing for the tear \
+Sing with me, if it's just for today \
 Maybe tomorrow the good Lord will take you away
 
-Dream on, dream on, dream on
-Dream until the dream come true
-Dream on, dream on, dream on
-Dream until your dream come true
-Dream on, dream on, dream on
-Dream on, dream on, dream on
+Dream on, dream on, dream on \
+Dream until the dream come true \
+Dream on, dream on, dream on \
+Dream until your dream come true \
+Dream on, dream on, dream on \
+Dream on, dream on, dream on \
 Dream on, oh
 
-Sing with me, sing for the year
-Sing for the laughter and sing for the tear
-Sing with me, if it's just for today
+Sing with me, sing for the year \
+Sing for the laughter and sing for the tear \
+Sing with me, if it's just for today \
 Maybe tomorrow the good Lord will take you away
 
-Sing with me, sing for the year
-Sing for the laughter and sing for the tear
-Sing with me, if it's just for today
+Sing with me, sing for the year \
+Sing for the laughter and sing for the tear \
+Sing with me, if it's just for today \
 Maybe tomorrow the good Lord will take you away
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1458,66 +1449,65 @@ Maybe tomorrow the good Lord will take you away
 ### Heaven
 Bryan Adams
 
-Oh, thinking about our younger years
-There was only you and me
+Oh, thinking about our younger years \
+There was only you and me \
 We were young and wild and free
 
-Now nothing can take you away from me
-We've been down that road before
-But that's over now
+Now nothing can take you away from me \
+We've been down that road before \
+But that's over now \
 You keep me coming back for more
 
-Baby, you're all that I want
-When you're lying here in my arms
-I'm finding it hard to believe
+Baby, you're all that I want \
+When you're lying here in my arms \
+I'm finding it hard to believe \
 We're in heaven
 
-And love is all that I need
-And I found it there in your heart
-It isn't too hard to see
+And love is all that I need \
+And I found it there in your heart \
+It isn't too hard to see \
 We're in heaven
 
-Oh, once in your life you find someone
-Who will turn your world around
+Oh, once in your life you find someone \
+Who will turn your world around \
 Bring you up when you're feeling down
 
-Yeah, nothing could change what you mean to me
-Oh, there's lots that I could say
-But just hold me now
+Yeah, nothing could change what you mean to me \
+Oh, there's lots that I could say \
+But just hold me now \
 'Cause our love will light the way
 
-And baby you're all that I want
-When you're lying here in my arms
-I'm finding it hard to believe
+And baby you're all that I want \
+When you're lying here in my arms \
+I'm finding it hard to believe \
 We're in heaven
 
-Yeah, love is all that I need
-And I found it there in your heart
-It isn't too hard to see
-We're in heaven
+Yeah, love is all that I need \
+And I found it there in your heart \
+It isn't too hard to see \
+We're in heaven \
 Yeah
 
-I've been waiting for so long
-For something to arrive
+I've been waiting for so long \
+For something to arrive \
 For love to come along
 
-Now our dreams are coming true
-Through the good times and the bad
+Now our dreams are coming true \
+Through the good times and the bad \
 Yeah, I'll be standing there by you, oh
 
-And baby you're all that I want
-When you're lying here in my arms
-I'm finding it hard to believe
+And baby you're all that I want \
+When you're lying here in my arms \
+I'm finding it hard to believe \
 We're in heaven
 
-And love is all that I need
-And I found it there in your heart
-It isn't too hard to see
+And love is all that I need \
+And I found it there in your heart \
+It isn't too hard to see \
 We're in heaven, heaven, woah
 
-You're all that I want
+You're all that I want \
 You're all that I need
-
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
@@ -1525,20 +1515,20 @@ You're all that I need
 ### Amor
 Secos & Molhados
 
-Leve, como leve pluma
-Muito leve, leve pousa
+Leve, como leve pluma \
+Muito leve, leve pousa \
 Muito leve, leve pousa
 
-Na simples e suave coisa
-Suave coisa nenhuma
+Na simples e suave coisa \
+Suave coisa nenhuma \
 Suave coisa nenhuma
 
-Sombra, silêncio ou espuma
-Nuvem azul
+Sombra, silêncio ou espuma \
+Nuvem azul \
 Que arrefece
 
-Simples e suave coisa
-Suave coisa nenhuma
+Simples e suave coisa \
+Suave coisa nenhuma \
 Que em mim amadurece
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1547,66 +1537,65 @@ Que em mim amadurece
 ### 32 Dentes
 Titãs
 
-Eu nunca mais vou dizer
-O que realmente penso
-Eu nunca mais vou dizer
+Eu nunca mais vou dizer \
+O que realmente penso \
+Eu nunca mais vou dizer \
 O que realmente sinto
 
-Eu juro
+Eu juro \
 Eu juro
 
-Eu nunca mais vou dizer
-O que realmente penso
-Eu nunca mais vou dizer
+Eu nunca mais vou dizer \
+O que realmente penso \
+Eu nunca mais vou dizer \
 O que realmente sinto
 
-Eu juro
-Eu juro por Deus
-Eu juro
+Eu juro \
+Eu juro por Deus \
+Eu juro \
 Eu juro por Deus
 
-Não confio em ninguém
-Não confio em ninguém
-Não confio em ninguém com mais de 30
+Não confio em ninguém \
+Não confio em ninguém \
+Não confio em ninguém com mais de 30 \
 Não confio em ninguém com 32 dentes
 
-Meu pai um dia me falou
-Pra que eu nunca mentisse
-Mas ele se esqueceu de dizer a verdade
+Meu pai um dia me falou \ 
+Pra que eu nunca mentisse \
+Mas ele se esqueceu de dizer a verdade \
 Ha! Ha! Ha! Ha!
 
-Eu nunca mais vou dizer
-O que realmente penso
-Eu nunca mais vou dizer
+Eu nunca mais vou dizer \
+O que realmente penso \
+Eu nunca mais vou dizer \
 O que realmente sinto
 
-Eu juro (eu juro)
+Eu juro (eu juro) \
 Eu juro (eu juro)
 
-Eu nunca mais vou dizer
-O que realmente penso
-Eu nunca mais vou dizer
+Eu nunca mais vou dizer \
+O que realmente penso \
+Eu nunca mais vou dizer \
 O que realmente sinto
 
-Eu juro (eu juro)
-Eu juro por Deus
-Eu juro (eu juro)
+Eu juro (eu juro) \
+Eu juro por Deus \
+Eu juro (eu juro) \
 Eu juro por Deus
 
-Não confio em ninguém
-Não confio em ninguém
-Não confio em ninguém com mais de 30
+Não confio em ninguém \
+Não confio em ninguém \
+Não confio em ninguém com mais de 30 \
 Não confio em ninguém com 32 dentes
 
 32 dentes
 
-Eu não sei fazer música, mas eu faço
-Eu não sei cantar as músicas que eu faço, mas eu canto
+Eu não sei fazer música, mas eu faço \
+Eu não sei cantar as músicas que eu faço, mas eu canto \
+Ninguém sabe nada \
+Ninguém sabe nada \
+Ninguém sabe nada \
 Ninguém sabe nada
-Ninguém sabe nada
-Ninguém sabe nada
-Ninguém sabe nada
-
 
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
@@ -1614,35 +1603,34 @@ Ninguém sabe nada
 ### Fátima
 Capital Inicial
 
-Vocês esperam uma intervenção divina
+Vocês esperam uma intervenção divina \
 Mas não sabem que o tempo agora está contra vocês
 
-Vocês se perdem no meio de tanto medo
+Vocês se perdem no meio de tanto medo \
 De não conseguir dinheiro pra comprar sem se vender
 
-E vocês armam seus esquemas ilusórios
+E vocês armam seus esquemas ilusórios \
 Continuam só fingindo que o mundo ninguém fez
 
-Mas acontece que tudo tem começo
+Mas acontece que tudo tem começo \
 E se começa um dia acaba, eu tenho pena de vocês
 
-E as ameaças de ataque nuclear
-Bombas de nêutrons não foi Deus quem fez
-Alguém, alguém um dia vai se vingar
-Vocês são vermes, pensam que são reis
-Não quero ser como vocês
-Eu não preciso mais
-Eu já sei o que eu tenho que saber
+E as ameaças de ataque nuclear \
+Bombas de nêutrons não foi Deus quem fez \ 
+Alguém, alguém um dia vai se vingar \
+Vocês são vermes, pensam que são reis \
+Não quero ser como vocês \
+Eu não preciso mais \
+Eu já sei o que eu tenho que saber \
 E agora tanto faz
 
-Três crianças sem dinheiro e sem moral
-Não ouviram a voz suave que era uma lágrima
-E se esqueceram de avisar pra todo mundo
-Ela talvez tivesse um nome e era: Fátima
-E de repente o vinho virou água
-E a ferida não cicatrizou
-E o limpo se sujou
+Três crianças sem dinheiro e sem moral \
+Não ouviram a voz suave que era uma lágrima \
+E se esqueceram de avisar pra todo mundo \
+Ela talvez tivesse um nome e era: Fátima \
+E de repente o vinho virou água \
+E a ferida não cicatrizou \
+E o limpo se sujou \
 E no terceiro dia ninguém ressuscitou
-
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
