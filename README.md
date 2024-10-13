@@ -35,6 +35,7 @@
 
 
 # Querigma - letras das bandas de alunos
+|
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 
@@ -113,7 +114,7 @@ Come together, yeah
  
 
 ### Sunshine Of Your Love 
-Cream
+##### Cream
 
 It's getting near dawn \
 When lights close their tired eyes \
