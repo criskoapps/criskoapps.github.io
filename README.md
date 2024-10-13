@@ -35,12 +35,12 @@
 
 
 # Querigma - letras das bandas de alunos
-[I Don't Wanna Lose You](#i-dont-wanna-lose-you) | 
+[I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 
 
 ### Come Together 
-The Beatles
+#### The Beatles
 
 Shoot me, shoot me \
 Shoot me, shoot me
@@ -102,7 +102,7 @@ Shoot me, oh
 Come together, yeah \
 Come together, yeah \
 Come together, yeah \
-Come together, yeah \ 
+Come together, yeah \
 Come together, yeah \
 Come together, yeah \
 Come together, yeah \
@@ -218,7 +218,7 @@ Behind blue eyes
  
 No one knows what it's like \
 To be hated \
-To be fated \ 
+To be fated \
 To telling only lies
 
 But my dreams \
@@ -234,7 +234,7 @@ Like I do \
 And I blame you
 
 No one bites back as hard \
-On their anger \ 
+On their anger \
 None of my pain and woe \
 Can show through
 
@@ -246,7 +246,7 @@ My love is vengeance \
 That's never free
 
 When my fist clenches, crack it open \
-Before I use it and lose my cool \ 
+Before I use it and lose my cool \
 When I smile, tell me some bad news \
 Before I laugh and act like a fool 
 
