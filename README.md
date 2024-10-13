@@ -327,7 +327,7 @@ I hate myself for loving you
  
 
 ### Because The Night 
-Patti Smith
+#### Patti Smith
 
 Take me now, baby, here as I am \
 Pull me close, try and understand \
@@ -388,7 +388,7 @@ Belongs to us
  
 
 ### Jumpin' Jack Flash 
-The Rolling Stones
+#### The Rolling Stones
 
 I was born in a crossfire hurricane \
 And I howled at my ma in the driving rain \
@@ -423,7 +423,7 @@ Jumpin' Jack Flash, it's a gas
  
 
 ### Whiskey In The Jar 
-Metallica
+#### Metallica
 
 As I was goin' over the Cork and Kerry mountains \
 I saw Captain Farrell and his money, he was countin' \
@@ -470,7 +470,7 @@ Musha ring, dum-a-doo dum-a-da
 
 
 ### Man in the Box
-Alice In Chains
+#### Alice In Chains
 
 I'm the man in the box \
 Buried in my shit \
@@ -513,7 +513,7 @@ Oh, feed my eyes \
  
 
 ### Zombie
-The Cranberries
+#### The Cranberries
 
 Another head hangs lowly \
 Child is slowly taken \
@@ -559,7 +559,7 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
 
 ### What's Up?
-4 Non Blondes
+#### 4 Non Blondes
 
 Twenty-five years \ 
 And my life is still \
@@ -612,7 +612,7 @@ And I, I am feeling \
 A little peculiar
 
 And so I wake in the morning \
-And I step outside \ 
+And I step outside \
 And I take deep breath \
 And I get real high \
 And I scream from the top of my lungs \
@@ -644,7 +644,7 @@ For a destination
  
 
 ### All Right Now
-Free
+#### Free
 
 Whoa-oh-oh-oh-whoa
 
@@ -700,8 +700,7 @@ All right now, baby, it's all right now
  
 
 ### Easy Lover 
-(feat. Philip Bayle) \
-Phil Collins
+#### Phil Collins (feat. Philip Bayle) 
 
 Easy lover
 
@@ -791,7 +790,7 @@ Before you know it you'll be on your knees \
  
 
 ### Perfect Strangers
-Deep Purple
+#### Deep Purple
 
 Can you remember, remember my name? \
 As I flow through your life \
@@ -828,7 +827,7 @@ We must remain perfect strangers
  
 
 ### Breaking All The Rules
-Peter Frampton
+#### Peter Frampton
 
 We are the people one and all \
 From deliverance to the fall \
@@ -864,7 +863,7 @@ Never choosing to be fools
  
 
 ### Alive
-Pearl Jam
+#### Pearl Jam
  
 Son, she said, have I got a little story for you \
 What you thought was your daddy was nothing but a– \
@@ -911,7 +910,7 @@ Ooh yeah, yeah yeah yeah
  
 
 ### Stand By Me
-Ben E. King
+#### Ben E. King
 
 When the night has come \
 And the land is dark \
@@ -955,7 +954,7 @@ Stand by me
 
 
 ### Synchronicity II
-The Police
+#### The Police
 
 Another suburban family morning \
 Grandmother screaming at the wall \
@@ -1006,7 +1005,7 @@ Many miles away, many miles away
  
 
 ### Hotel California
-Eagles
+#### Eagles
 
 On a dark desert highway \
 Cool wind in my hair \
@@ -1086,7 +1085,7 @@ But you can never leave
 
 
 ### Psycho Killer
-Talking Heads
+#### Talking Heads
 
 I can't seem to face up to the facts \
 I'm tense and nervous and I can't relax \
@@ -1136,7 +1135,7 @@ Oh, oh, oh, oh, aye-ya-ya-ya-ya
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
 ### Wish You Were Here
-Pink Floyd
+#### Pink Floyd
 
 So, so you think you can tell \
 Heaven from hell? \
@@ -1170,7 +1169,7 @@ Wish you were here
 
 
 ### Aluga-se
-Raul Seixas
+#### Raul Seixas
 
 A solução pro nosso povo eu vou dá \
 Negócio bom assim ninguém nunca viu \
@@ -1240,7 +1239,7 @@ Nós não vamo paga nada!
 
 
 ### Agora Só Falta Você
-Rita Lee
+#### Rita Lee
 
 Um belo dia resolvi mudar \
 E fazer tudo o que eu queria fazer \
@@ -1290,7 +1289,7 @@ Agora só falta você
 
 
 ### Malandragem
-Cássia Eller
+#### Cássia Eller
 
 Quem sabe eu ainda sou uma garotinha \
 Esperando o ônibus da escola, sozinha \
@@ -1346,7 +1345,7 @@ Quem sabe eu ainda sou uma garotinha!
 
 
 ### Blues da Piedade
-Cazuza
+#### Cazuza
 
 Agora eu vou cantar pros miseráveis \
 Que vagam pelo mundo derrotados \
@@ -1408,7 +1407,7 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 
 
 ### Dream On
-Aerosmith
+#### Aerosmith
 
 Every time that I look in the mirror \
 All these lines on my face getting clearer \
@@ -1459,7 +1458,7 @@ Maybe tomorrow the good Lord will take you away
 
 
 ### Heaven
-Bryan Adams
+#### Bryan Adams
 
 Oh, thinking about our younger years \
 There was only you and me \
@@ -1525,7 +1524,7 @@ You're all that I need
 
 
 ### Amor
-Secos & Molhados
+#### Secos & Molhados
 
 Leve, como leve pluma \
 Muito leve, leve pousa \
@@ -1547,7 +1546,7 @@ Que em mim amadurece
 
 
 ### 32 Dentes
-Titãs
+#### Titãs
 
 Eu nunca mais vou dizer \
 O que realmente penso \
@@ -1613,17 +1612,14 @@ Ninguém sabe nada
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
 ### Fátima
-Capital Inicial
+#### Capital Inicial
 
 Vocês esperam uma intervenção divina \
-Mas não sabem que o tempo agora está contra vocês
-
+Mas não sabem que o tempo agora está contra vocês \
 Vocês se perdem no meio de tanto medo \
-De não conseguir dinheiro pra comprar sem se vender
-
+De não conseguir dinheiro pra comprar sem se vender \
 E vocês armam seus esquemas ilusórios \
-Continuam só fingindo que o mundo ninguém fez
-
+Continuam só fingindo que o mundo ninguém fez \
 Mas acontece que tudo tem começo \
 E se começa um dia acaba, eu tenho pena de vocês
 
@@ -1648,7 +1644,7 @@ E no terceiro dia ninguém ressuscitou
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
 ### I Don't Wanna Lose You
-Tina Turner
+#### Tina Turner
 
 Oh \
 Oh, oh
@@ -1717,7 +1713,7 @@ True love, true love, true love
 
 
 ### Heathens
-Twenty One Pilots
+#### Twenty One Pilots
 
 All my friends are heathens, take it slow \
 Wait for them to ask you who you know \
@@ -1779,3 +1775,6 @@ It looks like you might be one of us
 
 
 [índice](#querigma---letras-das-bandas-de-alunos)
+
+
+
