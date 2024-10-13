@@ -35,7 +35,7 @@
 
 
 # Querigma - letras das bandas de alunos
-|
+
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 
@@ -114,7 +114,7 @@ Come together, yeah
  
 
 ### Sunshine Of Your Love 
-##### Cream
+#### Cream
 
 It's getting near dawn \
 When lights close their tired eyes \
@@ -158,7 +158,7 @@ In the sunshine of your love
  
 
 ### Listen To The Music 
-Doobie Brothers
+#### Doobie Brothers
 
 Don't you feel it growin', day by day \
 People gettin' ready for the news \
@@ -210,7 +210,7 @@ All the time
  
 
 ### Behind Blue Eyes 
-The Who
+#### The Who
 
 No one knows what it's like \
 To be the bad man \
@@ -265,7 +265,7 @@ Behind blue eyes
  
 
 ### I Hate Myself For Loving You 
-Joan Jett & the Blackhearts
+#### Joan Jett & the Blackhearts
 
 Midnight gettin' uptight, where are you? \
 You said you'd meet me, now it's quarter to two \
