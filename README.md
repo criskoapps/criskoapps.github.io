@@ -38,6 +38,8 @@
 
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
+[Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
+
 
 
 ### Come Together 
@@ -1776,5 +1778,62 @@ It looks like you might be one of us
 
 [índice](#querigma---letras-das-bandas-de-alunos)
 
+### Rock You Like a Hurricane
+#### Scorpions
+
+It's early morning, the sun comes out \
+Last night was shaking and pretty loud \
+My cat is purring, it scratches my skin \
+So what is wrong with another sin?
+The bitch is hungry, she needs to tell \
+So give her inches and feed her well \
+More days to come, new places to go \
+I've got to leave, it's time for a show
+
+Here I am \
+Rock you like a hurricane \
+Here I am \
+Rock you like a hurricane 
+
+My body is burning, it starts to shout \
+Desire is coming, it breaks out loud \
+Lust is in cages 'til storm breaks loose \
+Just have to make it with someone I choose \
+The night is calling, I have to go \
+The wolf is hungry, he runs the show \
+He's licking his lips, he's ready to win \
+On the hunt tonight for love at first sting 
+
+Here I am \
+Rock you like a hurricane \
+Here I am \
+Rock you like a hurricane
+
+Here I am \
+Rock you like a hurricane \
+Here I am \
+Rock you like a hurricane
+
+Rock you like a hurricane
+
+It's early morning, the sun comes out \
+Last night was shaking and pretty loud \
+My cat is purring, it scratches my skin \
+So what is wrong with another sin? \
+The night is calling, I have to go \
+The wolf is hungry, he runs the show \
+He's licking his lips, he's ready to win \
+On the hunt tonight for love at first sting
+
+Here I am \
+Rock you like a hurricane \
+Here I am \
+Rock you like a hurricane
+
+Here I am \
+Rock you like a hurricane \
+Here I am \
+Rock you like a hurricane
 
 
+[índice](#querigma---letras-das-bandas-de-alunos)
