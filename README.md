@@ -1784,7 +1784,7 @@ It looks like you might be one of us
 It's early morning, the sun comes out \
 Last night was shaking and pretty loud \
 My cat is purring, it scratches my skin \
-So what is wrong with another sin?
+So what is wrong with another sin? \
 The bitch is hungry, she needs to tell \
 So give her inches and feed her well \
 More days to come, new places to go \
