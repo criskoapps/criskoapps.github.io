@@ -1601,15 +1601,6 @@ Não confio em ninguém \
 Não confio em ninguém com mais de 30 \
 Não confio em ninguém com 32 dentes
 
-32 dentes
-
-Eu não sei fazer música, mas eu faço \
-Eu não sei cantar as músicas que eu faço, mas eu canto \
-Ninguém sabe nada \
-Ninguém sabe nada \
-Ninguém sabe nada \
-Ninguém sabe nada
-
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
