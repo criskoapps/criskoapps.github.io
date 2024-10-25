@@ -1819,7 +1819,9 @@ On the hunt tonight for love at first sting
 Here I am \
 Rock you like a hurricane \
 Here I am \
-Rock you like a hurricane
+Rock you like a hurricane \
+Here I am
+
 
 Here I am \
 Rock you like a hurricane \
