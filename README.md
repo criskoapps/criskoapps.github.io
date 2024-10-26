@@ -1826,7 +1826,8 @@ Here I am
 Here I am \
 Rock you like a hurricane \
 Here I am \
-Rock you like a hurricane
+Rock you like a hurricane \
+Here I am
 
 
 [índice](#querigma---letras-das-bandas-de-alunos)
