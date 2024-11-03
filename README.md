@@ -208,6 +208,11 @@ Oh, oh, listen to the music \
 Oh, oh, listen to the music \
 All the time
 
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
+Oh, oh, listen to the music \
+All the time
+
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
 
