@@ -142,6 +142,8 @@ I've been waiting so long \
 To be where I'm going \
 In the sunshine of your love
 
+(solo)
+
 I'm with you, my love \
 The light's shining through on you \
 Yes, I'm with you, my love \
@@ -287,7 +289,7 @@ You took my heart then you took my pride away
 I hate myself for loving you \
 Can't break free from the the things that you do \
 I wanna walk but I run back to you \
-That's why I hate myself for loving you
+That's why I hate myself for loving you ... Ow, uh
 
 Daylight spent the night without you \
 But I've been dreamin' 'bout the lovin' you do \
@@ -309,6 +311,7 @@ Ow, uh
 I think of you every night and day \
 You took my heart and you took my pride away
 
+(chamar palmas) \
 I hate myself for loving you \
 Can't break free from the things that you do \
 I wanna walk but I run back to you \
@@ -368,6 +371,8 @@ Because the night belongs to lust \
 Because the night belongs to lovers \
 Because the night belongs to us
 
+(solo)
+
 With love we sleep \
 With doubt the vicious circle \
 Turns and burns \
@@ -384,12 +389,16 @@ Because the night belongs to us
 Because tonight, there are two lovers \
 If we believe in the night we trust \
 Because the night belongs to lovers \
-Because the night belongs to lust
+Because the night belongs to love
 
 Because the night \
 Belongs to lovers \
 Because the night \
-Belongs to us
+Belongs to love
+
+'Cause we believe tonight we're lovers \
+'Cause we believe, in the night we trust \
+Because the night belongs to lovers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
@@ -408,6 +417,8 @@ I was schooled with a strap right across my back \
 But it's all right, now, in fact it's a gas \
 But it's all right, I'm Jumpin' Jack Flash \
 It's a gas, gas, gas!
+
+(solo)
 
 I was drowned, I was washed up and left for dead \
 I fell down to my feet and I saw they bled (yeah) \
@@ -479,6 +490,9 @@ Musha ring, dum-a-doo dum-a-da
 ### Man in the Box
 #### Alice In Chains
 
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww \
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww 
+
 I'm the man in the box \
 Buried in my shit \
 Won't you come and save me? \
@@ -492,6 +506,9 @@ He who tries \
 (Will be wasted) \
 Oh, feed my eyes \
 (Now you've sewn them) shut
+
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww \
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww 
 
 I'm the dog who gets beat \
 Shove my nose in shit \
@@ -507,6 +524,8 @@ He who tries \
 Oh, feed my eyes \
 (Now you've sewn them) shut
 
+(solo)
+
 Feed my eyes \
 (Can you sew them shut?) \
 Jesus Christ \
@@ -515,6 +534,9 @@ He who tries \
 (Will be wasted) \
 Oh, feed my eyes \
 (Now you've sewn them) shut
+
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww \
+Dahhh ahh rahh ahh rahhh rahhh rahhh raaww 
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
@@ -663,11 +685,11 @@ Maybe she's in need of a kiss \
 I said, "hey, what's your name, baby? \
 Maybe we can see things the same" \
 Now don't you wait, or hesitate \
-Let's move before they raise the parking rate
+Let's move before they raise the parking rate awh
 
 All right now, baby, it's all right now \
 All right now, baby, it's all right now \
-Let me tell you now
+Let me tell you now uh
 
 I took her home to my place \
 Watchin' every move on her face \
@@ -684,19 +706,21 @@ All right now, baby, it's all right now \
 All right now, baby, it's all right now \
 It's all right now
 
+(solo)
+
 Oh yeah, whoa
 
-Let me tell you all about it now, yeah
+Let me tell you all about it now, owh yeah
 
 I took her home to my place \
 Watchin' every move on her face \
 She said, "Look, what's your game? \
 Are you tryin' to put me in shame?"
 
-I said, "Slow, don't go so fast, \
+I said, "Slow, slow, don't go so fast, \
  don't you think that love can last?" \
 She said, "Love, Lord above \
-Now you're tryin' to trick me in love"
+Now you're tryin' to trick me in love" ahhh
 
 All right now, baby, it's all right now \
 All right now, baby, it's all right now \
@@ -856,6 +880,8 @@ Full of anger, full of doubt \
 And we're breaking all of the rules \
 Never choosing to be fools
 
+(solo)
+
 We are the people one and all \
 From deliverance to the fall \
 From the bitter to the brave \
@@ -865,6 +891,8 @@ We are the young ones crying out \
 Full of anger, full of doubt \
 And we're breaking all of the rules \
 Never choosing to be fools
+
+(solo)
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
