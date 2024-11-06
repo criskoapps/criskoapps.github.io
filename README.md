@@ -593,7 +593,7 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 ### What's Up?
 #### 4 Non Blondes
 
-Twenty-five years \ 
+Twenty-five years \
 And my life is still \
 I'm trying to get up \
 That great big hill of hope \
@@ -605,10 +605,10 @@ That the world was made up \
 For this brotherhood of man \
 For whatever that means
 
-And so I cry sometimes \ 
+And so I cry sometimes \
 When I'm lying in bed \
 Just to get it all out \
-What's in my head \ 
+What's in my head \
 And I, I am feeling \
 A little peculiar
 
@@ -774,7 +774,7 @@ Hold her and control her \
 You'd better forget it \
 You'll never get it \
 For she'll say there's no other \
-Till she finds another \ 
+Till she finds another \
 Better forget it \
 Oh you'll regret it
 
