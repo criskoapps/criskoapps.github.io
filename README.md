@@ -84,6 +84,8 @@ Come together, right now \
 Over me \
 Shoot me, right!
 
+(solo)
+
 Come, come \
 Come, come \
 Come
@@ -106,11 +108,12 @@ Come together, yeah \
 Come together, yeah \
 Come together, yeah \
 Come together, yeah \
+Come together, *yeah \
+Come together, yeahhhh \
+Come together, yeaaah \
+Come together, aahhh \
 Come together, yeah \
-Come together, yeah \
-Come together, yeah \
-Come together, yeah \
-Come together, yeah
+Come together, *yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
@@ -904,9 +907,11 @@ Son, she said, have I got a little story for you \
 What you thought was your daddy was nothing but a– \
 While you were sittin' home alone at age thirteen \
 Your real daddy was dyin' \
-Sorry you didn't see him, but I'm glad we talked
+Sorry you didn't see him \
+but I'm glad we talked
 
 Oh, I, oh I'm still alive \
+Hey, I, oh I'm still alive \
 Hey, I, oh I'm still alive \
 Hey, I, oh I'm still alive \
 Hey, oh
@@ -915,14 +920,16 @@ While she walks slowly across a young man's room \
 She said, I'm ready for you \
 Why I can't remember anything to this very day \
 'Cept the look, the look \
-Oh, you know where, now I can't see \
+Oh, you know where \
+now I can't see \
 I just stare
 
 I, I'm still alive \
 Hey, I, oh, I'm still alive \
 Hey, I, oh, I'm still alive \
 Hey, I, oh, I'm still alive, yeah \
-Ooh yeah, yeah, yeah, yeah, oh, ooh
+Ooh \
+yeah, yeah, yeah, yeah, oh, ooh
 
 Is something wrong, she said, of course there is \
 You're still alive, she said, \
@@ -937,6 +944,8 @@ Yeah, I, oh I'm still alive \
 Yeah, I \
 Ooh, I'm still alive! \
 Yeah yeah yeah yeah yeah yeah yeah!
+
+(solo)
 
 Ooh yeah, ooh ooh \
 Ooh yeah, yeah yeah yeah
