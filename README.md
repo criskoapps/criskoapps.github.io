@@ -33,6 +33,7 @@
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 
+[Mapa Astral](Mapas%20Extras%20-%20Astrolink.html)
 
 # Querigma - letras das bandas de alunos
 

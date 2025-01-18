@@ -1,0 +1,1 @@
+.disclosure__modal{height:100%;z-index:1000;max-height:none!important}.disclosure__modal>.modal__container{padding:0!important}.disclosure__modal.modal.modal--fixed .modal__container{height:100%}@media screen and (min-width: 767px){.disclosure__modal{top:50%;width:26.643em;height:47.143em;transform:translateY(-50%);left:calc(50% - 13.3215em)}}
